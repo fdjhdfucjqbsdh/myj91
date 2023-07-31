@@ -1,0 +1,16 @@
+<article class="article">
+  <a class="article__inner" href="{{ .Permalink }}">
+    <div class="article__header">
+{{ $image := .Resources.GetMatch .Params.image }}
+{{ $small := $image.Resize "320x216 q100 Box" }}
+<img class="article__image" src="{{ $small.RelPermalink }}">
+    </div>
+    <div class="article__text">
+      <div class="truncated" title="{{ .Title }}">
+      <h3 class="article__title">{{ .Title | safeHTML | truncate 45 }}</h3></div>
+    </div>
+  </a>
+  <footer class="article__footer">
+    <time datetime="{{ .Date }}">{{ .Date.Format "2006/01/02" }}</time>
+  </footer>
+</article>

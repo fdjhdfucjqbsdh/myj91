@@ -1,0 +1,23 @@
+{{ define "main" }}
+  {{- partial "profile.html" }}
+
+  {{- $pages := where site.RegularPages "Type" "in" site.Params.mainSections }}
+  {{- $paginator := .Paginate $pages }}
+
+  <section class="article-list">
+    {{ range $paginator.Pages }}
+      {{ .Render "summary"}}
+    {{ end }}
+  </section>
+
+  {{- if gt $paginator.TotalPages 1 }}
+    {{- partial "pagination.html" . -}}
+  {{- end }}
+
+<!-- JuicyAds v3.0 -->
+<center><script type="text/javascript" data-cfasync="false" async src="https://poweredby.jads.co/js/jads.js"></script>
+<ins id="1027693" data-width="300" data-height="62"></ins>
+<script type="text/javascript" data-cfasync="false" async>(adsbyjuicy = window.adsbyjuicy || []).push({'adzone':1027693});</script></center>
+<!--JuicyAds END-->
+  
+{{ end }}

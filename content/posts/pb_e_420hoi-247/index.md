@@ -3,8 +3,8 @@ author: j91
 title: 420HOI-247 Sora (20) Amateur Hoihoi Z/Amateur/Gonzo/Documentary/Neat/Neat/Beautiful Girl/Big Tits/Facials/Personal Shooting (Sora Nakagawa)
 date: 2023-07-31T01:00:00Z
 image: "pb_e_420hoi-247.jpg"
-tags: [Amateur, ]
-maker: []
+tags: [Amateur, Beautiful Girl,Big Tits,Bukkake,Documentary,POV]
+maker: [Amateur Bait Z]
 actress: []
 ---
 

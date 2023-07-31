@@ -3,8 +3,8 @@ author: j91
 title: PRBR-0031 Snuggle Type Lewd Woman ~ Healing Eros / Yoshino Who Gently Guides The Man To The Climax
 date: 2023-07-30T03:00:00Z
 image: "prbr0031pl.jpg"
-tags: [Censored, ]
-maker: []
+tags: [Censored, Entertainer,Image Video,Solowork]
+maker: [Orustak Pictures]
 actress: []
 ---
 

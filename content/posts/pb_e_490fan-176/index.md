@@ -3,8 +3,8 @@ author: j91
 title: 490FAN-176 Adultery Trip With A Beautiful Young Wife In Kimono! !
 date: 2023-07-30T01:00:00Z
 image: "pb_e_490fan-176.jpg"
-tags: [Amateur, ]
-maker: []
+tags: [Amateur, Creampie,Married Woman,POV]
+maker: [Gotanda Mongoose]
 actress: []
 ---
 

@@ -3,8 +3,8 @@ author: j91
 title: HIKR-193 The Charming Shop Clerk I Picked Up In Los Angeles Was A Bimbo With Over 120 Experienced People
 date: 2023-07-30T03:00:00Z
 image: "hikr00193pl.jpg"
-tags: [Censored, ]
-maker: []
+tags: [Censored, Creampie,Delusion,Nampa,Slender,White Actress]
+maker: [Plush / Mousouzoku]
 actress: []
 ---
 

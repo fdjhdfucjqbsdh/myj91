@@ -4,8 +4,8 @@ title: C0930 hitozuma1435 Haruna Yamawaki 28years old
 date: 2023-07-30T02:00:00Z
 image: "c0930-hitozuma1435.jpg"
 tags: [Uncensored, ]
-maker: []
-actress: []
+maker: [C0930]
+actress: [Haruna Yamawaki]
 ---
 
 

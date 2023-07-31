@@ -3,8 +3,8 @@ author: j91
 title: COGM-054 [Fact] The More Sloppy Woman (but Only The Face Is A Scholarship Student), The Masturbation Is Very Sloppy.
 date: 2023-07-30T03:00:00Z
 image: "cogm054pl.jpg"
-tags: [Censored, ]
-maker: []
+tags: [Censored, Beautiful Girl,Bitch,Blowjob,POV]
+maker: [Koguma / Mousouzoku]
 actress: []
 ---
 

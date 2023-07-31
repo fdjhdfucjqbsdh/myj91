@@ -3,9 +3,9 @@ author: j91
 title: SBMO-01255 Do You Think I’m A Hentai…? /Yoshiko Hattori
 date: 2023-07-30T03:00:00Z
 image: "sbmo01255pl.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored,Entertainer,Image Video,Solowork ]
+maker: [SBMO]
+actress: [Yoshiko Hattori]
 ---
 
 

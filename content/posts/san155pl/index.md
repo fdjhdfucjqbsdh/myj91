@@ -3,9 +3,9 @@ author: j91
 title: SAN-155 Beauty Bureau Wife Who Tricked A Food Delivery Virgin To Take Money / Yura Adachi
 date: 2023-07-31T03:30:00Z
 image: "san155pl.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored, Solowork,Married Woman,Breasts,Affair,Drama,Cuckold	]
+maker: [Maza ]
+actress: [Adachi Yura]
 ---
 
 

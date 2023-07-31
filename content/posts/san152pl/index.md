@@ -3,9 +3,9 @@ author: j91
 title: SAN-152 When I Was Enjoying An Affair, I Inflicted Injuries On A Devil Man, And I Had To Guarantee It With My Body Nipple Bing Busty Wife / Mizutani Kokone
 date: 2023-07-31T03:30:00Z
 image: "san152pl.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored, Solowork,Married Woman,Breasts,Affair,Drama,Cuckold	]
+maker: [Maza  ]
+actress: [Mizutani Kokone ]
 ---
 
 

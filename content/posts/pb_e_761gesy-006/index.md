@@ -3,8 +3,8 @@ author: j91
 title: 761GESY-006 [Orgy] Fair-Skinned Blonde Gal Akari & Hidden Bimbo Lady Yuuki (Akari Minase And Her Girlfriend Yuki)
 date: 2023-07-29T03:30:00Z
 image: "pb_e_761gesy-006.jpg"
-tags: [Amateur, ]
-maker: []
+tags: [3P&4P,Amateur,Creampie,Gal,Nasty&Hardcore,Nice Ass,Shaved,Squirting ]
+maker: [761GESY]
 actress: []
 ---
 

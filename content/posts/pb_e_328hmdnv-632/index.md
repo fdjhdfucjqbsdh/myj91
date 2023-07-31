@@ -3,8 +3,8 @@ author: j91
 title: 328HMDNV-632 [Individual/Kyoto Dialect] A 50-Year-Old Neat Local Wife Living In Kansai, Rich Mucous Membrane Copulation That Explodes The Accumulated Sexual Desire
 date: 2023-07-28T03:00:00Z
 image: "pb_e_328hmdnv-632.jpg"
-tags: [Amateur, ]
-maker: []
+tags: [Affair,Amateur,Married Woman,Mature Woman,POV ]
+maker: [ Fuck Photo Rinet Work Second Edition]
 actress: []
 ---
 

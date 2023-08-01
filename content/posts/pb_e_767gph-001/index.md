@@ -3,8 +3,8 @@ author: j91
 title: 767GPH-001 Gal Poyo. Sensitivity Is Too Cute Gal Actress Rurucha. Takes Amateur Men And Gachigon
 date: 2023-08-01T03:00:00Z
 image: "pb_e_767gph-001.jpg"
-tags: [Amateur, ]
-maker: []
+tags: [Amateur,Documentary,Gal,POV,Shaved,Solowork ]
+maker: [767GPH]
 actress: []
 ---
 

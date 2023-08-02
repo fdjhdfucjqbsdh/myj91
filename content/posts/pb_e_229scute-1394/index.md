@@ -3,9 +3,9 @@ author: j91
 title: 229SCUTE-1394 Konatsu (19) S-Cute I’m Sorry For My Naughty Body. Okute Girls And H (Konatsu Kashiwagi)
 date: 2023-08-02T02:00:00Z
 image: "pb_e_229scute-1394.jpg"
-tags: [Uncensored, ]
-maker: []
-actress: []
+tags: [Amateur,Beautiful Girl,Breasts ]
+maker: [S-cute]
+actress: [Konatsu Kashiwagi]
 ---
 
 

@@ -3,9 +3,9 @@ author: j91
 title: 229SCUTE-1399 Sumire (21) S-Cute I Want To Be Full Of Chu And Etch (Sumire Kuramoto)
 date: 2023-08-02T02:00:00Z
 image: "pb_e_229scute-1399.jpg"
-tags: [Uncensored, ]
-maker: []
-actress: []
+tags: [Amateur,Beautiful Girl,Slender]
+maker: [S-cute]
+actress: [Sumire Kuramoto]
 ---
 
 

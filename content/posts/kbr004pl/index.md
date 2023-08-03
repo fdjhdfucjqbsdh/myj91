@@ -1,11 +1,11 @@
 ---
 author: j91
 title: KBR-004 Abstinence Acme Explosive Desire Release Obedient De M Training Ahead Of The Extreme State After Being Impatient For A Month. Hino Kato
-date: 2023-08-03T00:00:00Z
+date: 2023-08-03T00:30:00Z
 image: "kbr004pl.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored,Solowork,Big Tits,Married Woman,Mature Woman,AV Actress	 ]
+maker: [KANBi  ]
+actress: [Katou Hino]
 ---
 
 

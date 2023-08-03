@@ -3,9 +3,9 @@ author: j91
 title: STSK-087 Gravure Idol Handshake Event 02
 date: 2023-08-03T00:00:00Z
 image: "stsk087pl.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored,Creampie,Voyeur,4HR+,Swimsuit,Entertainer	 ]
+maker: [Shirouto 39  ]
+actress: [Kuramoto Sumire]
 ---
 
 

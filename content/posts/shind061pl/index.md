@@ -3,8 +3,8 @@ author: j91
 title: SHIND-061 Adhesive Stalker M’s Request Idiot · Home Invasion Record # 97 · 98
 date: 2023-08-03T00:00:00Z
 image: "shind061pl.jpg"
-tags: [Censored, ]
-maker: []
+tags: [Censored,Creampie,Underwear,Facials	 ]
+maker: [Shinkirou  ]
 actress: []
 ---
 

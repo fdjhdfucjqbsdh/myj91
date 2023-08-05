@@ -1,3 +1,4 @@
 ---
 title: "adb"
+layout: "adb"
 ---

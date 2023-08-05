@@ -1,4 +1,3 @@
 ---
 title: "adb"
-layout: "search"
 ---

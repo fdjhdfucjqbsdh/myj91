@@ -1,4 +1,4 @@
 ---
-title: "adb"
+title: "Adblock Detected"
 layout: "adb"
 ---

@@ -31,7 +31,7 @@ actress: [Konno Hikaru]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://wolfstream.tv/ru8ap706xrz7"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://wolfstream.tv/ru8ap706xrz7"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Konno Hikaru]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://streamruby.com/vqa4chk4dkuh.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://streamruby.com/vqa4chk4dkuh.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> SR</button></a></div>
 <br><br>
       </div>
     </div>

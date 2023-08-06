@@ -1,8 +1,14 @@
+<div id="j91">
 <center><script type="application/javascript" 
 data-idzone="4987782" src="https://a.realsrv.com/nativeads-v2.js" 
 ></script></center>
-
-
+</div>
+<script>
+setTimeout(() => {
+  if (document.getElementById('j91').clientHeight == 0)
+        window.location = '/adb';
+}, 4000)
+</script>
 
 {{- $validFormats := slice "default" "terse" }}
 

@@ -4,7 +4,7 @@ title: 275OCHA-157 Yuka
 date: 2023-08-04T03:00:00Z
 image: "pb_e_275ocha-157.jpg"
 tags: [Amateur, ]
-maker: []
+maker: [Ochanomizu Amateur Laboratory]
 actress: []
 ---
 

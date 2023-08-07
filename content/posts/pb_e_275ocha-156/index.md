@@ -4,7 +4,7 @@ title: 275OCHA-156 Ichika
 date: 2023-08-04T03:00:00Z
 image: "pb_e_275ocha-156.jpg"
 tags: [Amateur, ]
-maker: []
+maker: [Ochanomizu Amateur Laboratory]
 actress: []
 ---
 

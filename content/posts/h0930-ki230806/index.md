@@ -4,8 +4,8 @@ title: H0930 ki230806 Mami Kobori 38years old
 date: 2023-08-06T01:55:00Z
 image: "h0930-ki230806.jpg"
 tags: [Uncensored, ]
-maker: [ ]
-actress: []
+maker: [ H0930]
+actress: [Mami Kobori]
 ---
 
 

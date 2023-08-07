@@ -4,7 +4,7 @@ title: KAMEF-043 Individual Shooting Specialized Colossal Tits Idol Photo Sessio
 date: 2023-08-06T03:00:00Z
 image: "kamef00043pl.jpg"
 tags: [Censored, ]
-maker: []
+maker: [It's Thursday! Everyone Gather Up!!]
 actress: []
 ---
 

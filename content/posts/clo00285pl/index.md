@@ -4,7 +4,7 @@ title: CLO-285 At A School That Has Lost Popularity, With That Girl… Ruru Aris
 date: 2023-08-06T03:00:00Z
 image: "clo00285pl.jpg"
 tags: [Censored, ]
-maker: []
+maker: [Chobitch]
 actress: []
 ---
 

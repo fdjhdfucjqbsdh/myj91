@@ -3,8 +3,8 @@ author: j91
 title: FANH-162 A Dazzling Young Lady In Uniform Mikan-Chan, 18 Years Old, A Beautiful Honor Student Who Is In Estrus With Adult Sex That She Learned From Her Teacher.
 date: 2023-08-07T00:00:00Z
 image: "fanh00162pl.jpg"
-tags: [Censored, ]
-maker: []
+tags: [Censored,Beautiful Girl,Blowjob,Breasts,Cosplay,Cowgirl,Creampie,Cunnilingus,Finger Fuck,Hotel,Huge Butt,Kiss,POV,Sailor Suit,Squirting ]
+maker: [Hamedori Network Secondedition]
 actress: []
 ---
 

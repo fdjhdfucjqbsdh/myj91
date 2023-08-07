@@ -3,9 +3,9 @@ author: j91
 title: 702NOSKN-048 Two People Alone In Genuine Creampie Hot Spring Trip Hono Wakamiya
 date: 2023-08-07T00:00:00Z
 image: "702NOSKN-048.jpg"
-tags: [Censored, ]
-maker: []
-actress: []
+tags: [Censored,Big Tits,Creampie,Documentary,Hot Spring,Solowork,Yukata ]
+maker: [North Skins  ]
+actress: [Wakamiya Hono]
 ---
 
 

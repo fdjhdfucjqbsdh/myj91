@@ -37,7 +37,7 @@ input.addEventListener('keyup', (e) => {
       itemList += `<div class="resultItem">`
         + `<div class="resultItem__body">`
         + `<h3 class="resultItem__title"><a href="${items[i].item.permalink}">${items[i].item.title}</a></h3>`
-        + `<div class="resultItem__footer">${items[i].item.date}</div><hr>`
+        + `<div class="resultItem__footer">${items[i].item.date}</div><hr style="border-top: 3px solid LightGray;">`
         + `</div>`
         + `</div>`
     }

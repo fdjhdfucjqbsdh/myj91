@@ -1,19 +1,19 @@
 ---
 author: j91
-title: STARS-891 Always Sexual Intercourse Housekeeping Service Cooking, Laundry, Cleaning … Housekeeper Ogura-San Who Performs General Housework <While Intercourse> Yuna Ogura
-date: 2023-08-08T00:35:00Z
-image: "1stars00891pl.jpg"
-tags: [Censored,3P&4P,Creampie,Deep Throating,Solowork ]
-maker: [SOD Create]
-actress: [Ogura Yuna]
+title: FC2PPV 3650993 First Shooting! ! Limited 1480pt Until 8/14! ! I’m Shy And Shy, But I Thought It Was Because I Was A Nursery Teacher, But I Sucked On My Cock In The Car And Drank Up My Sperm! ! After That, It Is Vaginal Cum Shot Twice! !
+date: 2023-08-08T01:00:00Z
+image: "FC2PPV-3650993.jpg"
+tags: [Uncensored, ]
+maker: [FC2PPV]
+actress: []
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="YZx3yxKVyghvPk4">
+<div class="video" data-videoid="3a7odrbD4ls6XR">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/1stars00891pl/1stars00891pl.jpg" width="WIDTH" height="HEIGHT" alt="1stars00891pl.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/FC2PPV-3650993/FC2PPV-3650993.jpg" width="WIDTH" height="HEIGHT" alt="FC2PPV-3650993.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Ogura Yuna]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/YZx3yxKVyghvPk4"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/3a7odrbD4ls6XR"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Ogura Yuna]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://lylxan.com/nwk8j63yrcmk"><button class="btn-hover color-9"><i class="fa fa-download"></i> ZH</button></a></div>
+    <a href="https://lylxan.com/udqvw1s7zffg"><button class="btn-hover color-9"><i class="fa fa-download"></i> ZH</button></a></div>
 <br><br>
       </div>
     </div>

@@ -1,7 +1,7 @@
 ---
 author: j91
 title: SDMUA-071 I Summoned Up The Courage To Ask Her Out On A Date With A Shop Clerk Who Had A Crush On Her, But She Was Overwhelmed, And I Wanted To Make Her Mine. Ami Tsuzuki
-date: 2023-08-07T14:00:00Z
+date: 2023-08-08T00:30:00Z
 image: "1sdmua00071pl.jpg"
 tags: [Censored,Big Tits,Nasty&Hardcore,Restraint,Solowork ]
 maker: [SOD Create]

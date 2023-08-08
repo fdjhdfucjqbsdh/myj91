@@ -4,6 +4,11 @@ paginate: 16
 theme: coyote
 enableRobotsTXT: true
 
+sitemap:
+  changeFreq: "hourly"
+  filename: sitemap.xml
+  priority: 0.9
+
 # params:
 #   profile:
 #     enabled: true

@@ -2,6 +2,7 @@ User-agent: *
 Disallow: /maker/
 Disallow: /actress/
 Disallow: /tags/
-Disallow: /adb/
-Disallow: /search/
+Disallow: adb.html
+Disallow: search.html
+Disallow: 404.html
 Sitemap: {{ "sitemap.xml" | absLangURL }}

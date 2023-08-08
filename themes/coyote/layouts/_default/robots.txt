@@ -2,3 +2,5 @@ User-agent: *
 Disallow: /maker/
 Disallow: /actress/
 Disallow: /tags/
+
+Sitemap: {{ "sitemap.xml" | absLangURL }}

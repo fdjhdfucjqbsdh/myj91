@@ -6,6 +6,10 @@
 <link href="https://cdnjs.cloudflare.com/ajax/libs/normalize/8.0.1/normalize.min.css" rel="stylesheet" type="text/css" />
 <link rel='stylesheet' href='https://unpkg.com/boxicons@2.1.2/css/boxicons.min.css'>
 
+{{ if or (ne .Kind "page") (and (eq .Kind "page") (eq .Params.sitemap_exclude true)) }}
+  <meta name="robots" content="noindex, nofollow" />
+{{ end }}
+
 <!-- Add other content here -->
 
   {{ if .HasShortcode "github_button" }}

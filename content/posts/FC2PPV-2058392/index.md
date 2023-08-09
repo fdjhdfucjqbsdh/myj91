@@ -40,7 +40,7 @@ actress: []
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://lylxan.com/htn17nali67s"><button class="btn-hover color-9"><i class="fa fa-download"></i> ZH</button></a></div>
+    <a href="https://wolfstream.tv/htn17nali67s"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

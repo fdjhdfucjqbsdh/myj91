@@ -2,6 +2,10 @@ baseURL: "https://my.j91.asia/"
 title: Javsubs91
 paginate: 16
 theme: coyote
+enableRobotsTXT: true
+
+sitemap:
+  filename: sitemap.xml
 
 # params:
 #   profile:

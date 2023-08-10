@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-635 A Cheeky Subordinate Is A High-Class Delivery Health Call Girl Persistent Adhesive Piston Breaking In Seniority Moe Amatsuka
-date: 2023-08-10T01:00:00Z
-image: "FSDSS635.jpg"
-tags: [Censored,Breasts,OL,Solowork ]
-maker: [FALENO]
-actress: [Amatsuka Moe]
+title: SILK-140 GOSSIP & SCANDAL FOCUS002
+date: 2023-08-10T00:00:00Z
+image: "silk140pl.jpg"
+tags: [Censored,Couple,Drama,Love,For Women	 ]
+maker: [Silk Labo  ]
+actress: [Kitagawa Erika , Maki Kyouko, Mizutani Aoi, Miyazawa Chiharu ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="01X9GDJJqpFb47p">
+<div class="video" data-videoid="MAdBB6LJM1ImkgB">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS635/FSDSS635.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS635.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/silk140pl/silk140pl.jpg" width="WIDTH" height="HEIGHT" alt="silk140pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/01X9GDJJqpFb47p"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/MAdBB6LJM1ImkgB"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ahubnccmlsno"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/0r8gmle9pnzn"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

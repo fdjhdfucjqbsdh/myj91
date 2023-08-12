@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-646 A Classy But Sex-Loving Slut Sister Will Fuck You For 24 Hours! No Matter How Many Times I Ejaculate, I Won’t Forgive You… I’m Staying At A Love Hotel Until Morning, And I’m Dating Nene Yoshitaka
-date: 2023-08-12T01:05:00Z
-image: "FSDSS646.jpg"
-tags: [Censored,Cowgirl,Older Sister,Riding Facesitting,Slut,Solowork ]
-maker: [FALENO]
-actress: [Yoshitaka Nene]
+title: DNJR-105 Awakening Proclivities ~ A Girl's Hidden M Man Strong Piss Drinking Proclivities ~ Mai Hanagari
+date: 2023-08-12T00:53:00Z
+image: "dnjr105pl.jpg"
+tags: [Censored,Solowork,School Girls,Dirty Words,Slut,Piss Drinking,Submissive Men	 ]
+maker: [Inu / Mousozoku]
+actress: [Kagari Mai]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="MzLWXywPlWfmqkg">
+<div class="video" data-videoid="XjjGvKlaVYiDjyL">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS646/FSDSS646.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS646.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/dnjr105pl/dnjr105pl.jpg" width="WIDTH" height="HEIGHT" alt="dnjr105pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Yoshitaka Nene]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/MzLWXywPlWfmqkg"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/XjjGvKlaVYiDjyL"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Yoshitaka Nene]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://streamruby.com/ttimcjjfh8fi"><button class="btn-hover color-9"><i class="fa fa-download"></i> SR</button></a></div>
+    <a href="https://voe.sx/l0b4mzbyjfao"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

@@ -31,7 +31,7 @@ actress: [Erika Tachibana]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://wolfstream.tv/v/robpn60wsa9o"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></div>
+<a href="https://wolfstream.tv/robpn60wsa9o"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></div>
     </div>
   </div>
 </div>

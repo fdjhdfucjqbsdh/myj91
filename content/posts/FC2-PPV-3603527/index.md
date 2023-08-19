@@ -31,7 +31,7 @@ actress: []
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://wolfstream.tv/v/am5p0jq3ji83"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></div>
+<a href="https://wolfstream.tv/am5p0jq3ji83"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></div>
     </div>
   </div>
 </div>

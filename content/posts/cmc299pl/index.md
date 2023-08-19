@@ -40,7 +40,7 @@ actress: [Horai Kasumi ,Nominami Yui ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/41sefszpcn87.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/41sefszpcn87"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

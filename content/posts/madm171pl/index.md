@@ -40,7 +40,7 @@ actress: [Misaki Kanna]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/jz3zn9xd5c9m.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/jz3zn9xd5c9m"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

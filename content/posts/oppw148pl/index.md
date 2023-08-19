@@ -40,7 +40,7 @@ actress: [Morino Kodama ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/fzhiveg0sfgj.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/fzhiveg0sfgj"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

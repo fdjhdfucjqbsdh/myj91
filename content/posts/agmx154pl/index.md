@@ -40,7 +40,7 @@ actress: [Miura Maina, Itou Meru, Mita Sakura, Shirayuki Hime, NATSUKA, Matsuoka
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/nn7uavl81pia.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/nn7uavl81pia"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

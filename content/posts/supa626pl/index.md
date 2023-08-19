@@ -40,7 +40,7 @@ actress: []
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/mgh8j0rj810l.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/mgh8j0rj810l"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

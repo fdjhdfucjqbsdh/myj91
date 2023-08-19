@@ -40,7 +40,7 @@ actress: [Tsukihi Sara]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/ioqq5ownk5cl.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/ioqq5ownk5cl"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

@@ -40,7 +40,7 @@ actress: [Nakajou Rino ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/jd4psy72tt7j.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/jd4psy72tt7j"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

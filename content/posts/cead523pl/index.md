@@ -40,7 +40,7 @@ actress: [Haruna Hana, Niimura Akari, Mochizuki Ayaka, Nanase Iori ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/rs9nmhxthnwt.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://voe.sx/rs9nmhxthnwt"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
 <br><br>
       </div>
     </div>

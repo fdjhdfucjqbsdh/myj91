@@ -11,7 +11,7 @@ actress: [Kuramoto Sumire]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="oQ0Mv8G9eVSJ2Oz">
+<div class="video" data-videoid="PJXgVL7mBeUGDX">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/moon009pl/moon009pl.jpg" width="WIDTH" height="HEIGHT" alt="moon009pl.mp4" loading="lazy">
     </a>
@@ -31,7 +31,7 @@ actress: [Kuramoto Sumire]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/oQ0Mv8G9eVSJ2Oz"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/PJXgVL7mBeUGDX"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Kuramoto Sumire]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/qolwyg8m6vke"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://oneupload.to/gvc8f2tc4g1k"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

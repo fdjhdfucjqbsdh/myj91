@@ -36,29 +36,17 @@
   {{- with .Paginator }}
     {{- $currentPageNumber := .PageNumber }}
 
-    {{- with .First }}
-      {{- if ne $currentPageNumber .PageNumber }}
-      <li class="page-item">
-        <a href="{{ .URL }}" aria-label="First" class="page-link" role="button"><span aria-hidden="true">&laquo;&laquo;</span></a>
-      </li>
-      {{- else }}
-      <li class="page-item disabled">
-        <a aria-disabled="true" aria-label="First" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">&laquo;&laquo;</span></a>
-      </li>
-      {{- end }}
-    {{- end }}
-
     {{- with .Prev }}
       <li class="page-item">
-        <a href="{{ .URL }}" aria-label="Previous" class="page-link" role="button"><span aria-hidden="true">&laquo;</span></a>
+        <a href="{{ .URL }}" aria-label="Previous" class="page-link" role="button"><span aria-hidden="true">Prev</span></a>
       </li>
     {{- else }}
       <li class="page-item disabled">
-        <a aria-disabled="true" aria-label="Previous" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">&laquo;</span></a>
+        <a aria-disabled="true" aria-label="Previous" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">Prev</span></a>
       </li>
     {{- end }}
 
-    {{- $slots := 5 }}
+    {{- $slots := 9 }}
     {{- $start := math.Max 1 (sub .PageNumber (math.Floor (div $slots 2))) }}
     {{- $end := math.Min .TotalPages (sub (add $start $slots) 1) }}
     {{- if lt (add (sub $end $start) 1) $slots }}
@@ -79,24 +67,12 @@
 
     {{- with .Next }}
       <li class="page-item">
-        <a href="{{ .URL }}" aria-label="Next" class="page-link" role="button"><span aria-hidden="true">&raquo;</span></a>
+        <a href="{{ .URL }}" aria-label="Next" class="page-link" role="button"><span aria-hidden="true">Next</span></a>
       </li>
     {{- else }}
       <li class="page-item disabled">
-        <a aria-disabled="true" aria-label="Next" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">&raquo;</span></a>
+        <a aria-disabled="true" aria-label="Next" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">Next</span></a>
       </li>
-    {{- end }}
-
-    {{- with .Last }}
-      {{- if ne $currentPageNumber .PageNumber }}
-      <li class="page-item">
-        <a href="{{ .URL }}" aria-label="Last" class="page-link" role="button"><span aria-hidden="true">&raquo;&raquo;</span></a>
-      </li>
-      {{- else }}
-      <li class="page-item disabled">
-        <a aria-disabled="true" aria-label="Last" class="page-link" role="button" tabindex="-1"><span aria-hidden="true">&raquo;&raquo;</span></a>
-      </li>
-      {{- end }}
     {{- end }}
   {{- end }}
 {{- end -}}

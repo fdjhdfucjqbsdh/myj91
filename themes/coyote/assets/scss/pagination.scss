@@ -1,3 +1,39 @@
+.pagination {
+  display: flex;
+  justify-content: center;
+  gap: 1.6rem;
+  margin: 1.6rem auto 3.2rem;
+
+  &__item {
+    text-align: center;
+  }
+
+  &__link {
+    display: block;
+    min-width: 40px;
+    padding: 12px;
+    color: #111;
+    background-color: #ebeef2;
+    border-radius: 8px;
+
+    &--current {
+      background-color: #5486cc;
+      color: #fff;
+    }
+  }
+}
+
+body {
+    color: #212121;
+    background: #FAFAFA;
+    font: normal 16px/1.5 "Open Sans", Helvetica, sans-serif;
+}
+
+h2 {
+    font-weight: 500;
+    padding: 0 15px;
+    span { color: red;}
+}
 /*************************************************/
 /* USE THE FOLLOWING CSS TO STYLE YOUR PAGINATOR */
 /*************************************************/

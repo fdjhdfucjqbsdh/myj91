@@ -11,7 +11,7 @@ actress: []
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="w4kam7773KSJM71">
+<div class="video" data-videoid="96aA4VbZjLHa31X">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/pb_e_siro-5111/pb_e_siro-5111.jpg" width="WIDTH" height="HEIGHT" alt="pb_e_siro-5111.mp4" loading="lazy">
     </a>
@@ -31,7 +31,7 @@ actress: []
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/w4kam7773KSJM71"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/96aA4VbZjLHa31X"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: []
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://oneupload.to/2xpe8v0vj02n"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
+    <a href="https://oneupload.to/dlluznb0abuu"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

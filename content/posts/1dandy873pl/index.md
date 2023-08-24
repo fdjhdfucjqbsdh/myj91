@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-648 Yuko Ono, A Housekeeper With A Beautiful Ass Who Couldn’t Resist And Continue To Be Fucked By A Stinking Unfaithful Uncle NEET
-date: 2023-08-24T00:16:00Z
-image: "FSDSS648.jpg"
-tags: [Censored,Blowjob,Breasts,Cunnilingus,Restraint,Solowork ]
-maker: [FALENO]
-actress: [Ono Yuuko]
+title: DANDY-873 A Senior CA Is A Lesbian? ! A Rookie Cabin Attendant Who Felt Lesbian Harassment While Rubbing Her Breasts At Work
+date: 2023-08-24T00:00:00Z
+image: "1dandy873pl.jpg"
+tags: [Censored,Lesbian,Pantyhose,Squirting,Stewardess,Lesbian Kiss ]
+maker: [Dandy]
+actress: []
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Yg8b04ZbDRSdlk">
+<div class="video" data-videoid="oMPpZ1mDqrsJlPv">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS648/FSDSS648.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS648.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/1dandy873pl/1dandy873pl.jpg" width="WIDTH" height="HEIGHT" alt="1dandy873pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Ono Yuuko]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Yg8b04ZbDRSdlk"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/oMPpZ1mDqrsJlPv"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Ono Yuuko]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/uvcncvg2khq1"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://oneupload.to/c1y6h1q20kb5"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

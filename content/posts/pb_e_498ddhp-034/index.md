@@ -11,7 +11,7 @@ actress: []
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="DkQvGP6GAYfBwk">
+<div class="video" data-videoid="j7eMA0k1GZszzw2">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/pb_e_498ddhp-034/pb_e_498ddhp-034.jpg" width="WIDTH" height="HEIGHT" alt="pb_e_498ddhp-034.mp4" loading="lazy">
     </a>
@@ -31,7 +31,7 @@ actress: []
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/DkQvGP6GAYfBwk"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/j7eMA0k1GZszzw2"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: []
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://oneupload.to/f8ahgcvej3jj"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
+    <a href="https://oneupload.to/zzpu0fdsb7dq"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

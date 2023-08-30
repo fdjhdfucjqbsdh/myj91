@@ -5,6 +5,7 @@ theme: coyote
 enableRobotsTXT: true
 
 sitemap:
+  changeFreq: "hourly"
   filename: sitemap.xml
 
 # params:

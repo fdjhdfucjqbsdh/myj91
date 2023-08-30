@@ -1,4 +1,4 @@
 ---
 title: "sitemap"
-layout: "posts.xml"
+layout: "postss.xml"
 ---

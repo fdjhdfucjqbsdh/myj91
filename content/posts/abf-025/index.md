@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-652 Massive Convulsions Climax Sexual Intercourse Special With A Beautiful Girl Whose Rationality Has Collapsed! Mashiro Mami
-date: 2023-08-31T01:40:00Z
-image: "FSDSS652.jpg"
-tags: [Censored,Big Tits,Solowork,Squirting ]
-maker: [FALENO]
-actress: [Mami Mashiro ]
+title: ABF-025 Berokisu Intercourse That Will Melt Your Lips Airi Suzumura
+date: 2023-08-31T01:30:00Z
+image: "abf-025.jpg"
+tags: [Censored,Kiss,Slender,Solowork ]
+maker: [ Prestige]
+actress: [Suzumura Airi ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="7kqr0wzZgLCApbV">
+<div class="video" data-videoid="kzmz8O2ko1IOwyG">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS652/FSDSS652.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS652.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/abf-025/abf-025.jpg" width="WIDTH" height="HEIGHT" alt="abf-025.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Mami Mashiro ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/7kqr0wzZgLCApbV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/kzmz8O2ko1IOwyG"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Mami Mashiro ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/m1o0o34rjuzy"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/3ve6jlnfzc1v"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

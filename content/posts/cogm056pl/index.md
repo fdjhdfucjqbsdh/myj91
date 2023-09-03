@@ -1,19 +1,19 @@
 ---
 author: j91
-title: DLDSS-233 I Succumbed To The Temptation Of My Girlfriend’s Older Sister’s No Bra Tits And Had Sex Over And Over Again. Maaya Irita
-date: 2023-09-03T00:20:00Z
-image: "DLDSS233.jpg"
-tags: [Censored,Big Tits,Older Sister,Solowork ]
-maker: [DAHLIA]
-actress: [Maaya Irita]
+title: COGM-056 [Sad News] Wai's Favorite Girlfriend Is Being Developed Into A Handsome And Disgusting Pussy
+date: 2023-09-03T00:00:00Z
+image: "cogm056pl.jpg"
+tags: [Censored,Blow,3P, 4P,POV,Cuckold	 ]
+maker: [ Koguma / Mousouzoku  ]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="bRP3qe4XoRhPYjj">
+<div class="video" data-videoid="Odzj7OeZZmT7M6">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/DLDSS233/DLDSS233.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS233.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/cogm056pl/cogm056pl.jpg" width="WIDTH" height="HEIGHT" alt="cogm056pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Maaya Irita]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/bRP3qe4XoRhPYjj"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/Odzj7OeZZmT7M6"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Maaya Irita]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/cb0cfxip8io6"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://oneupload.to/magdtyfnd0ai"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

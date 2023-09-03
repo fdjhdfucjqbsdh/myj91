@@ -1,19 +1,19 @@
 ---
 author: j91
-title: DLDSS-233 I Succumbed To The Temptation Of My Girlfriend’s Older Sister’s No Bra Tits And Had Sex Over And Over Again. Maaya Irita
-date: 2023-09-03T00:20:00Z
-image: "DLDSS233.jpg"
-tags: [Censored,Big Tits,Older Sister,Solowork ]
-maker: [DAHLIA]
-actress: [Maaya Irita]
+title: MBRAA-271 Vibration Of Love! ? / Yu Asamiya
+date: 2023-09-03T00:00:00Z
+image: "mbraa271pl.jpg"
+tags: [Censored,Solowork,Image Video,Entertainer	 ]
+maker: [Spice Visual   ]
+actress: [Asamiya Yuu  ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="bRP3qe4XoRhPYjj">
+<div class="video" data-videoid="jYPrrmwXvdtzOgm">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/DLDSS233/DLDSS233.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS233.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/mbraa271pl/mbraa271pl.jpg" width="WIDTH" height="HEIGHT" alt="mbraa271pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Maaya Irita]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/bRP3qe4XoRhPYjj"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/jYPrrmwXvdtzOgm"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Maaya Irita]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/cb0cfxip8io6"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://oneupload.to/k6qzvkiba008"><button class="btn-hover color-9"><i class="fa fa-download"></i> ONE</button></a></div>
 <br><br>
       </div>
     </div>

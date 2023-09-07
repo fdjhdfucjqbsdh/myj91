@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-647 Home Drinking Reverse NTR Her Best Friend’s Girlfriend Plays With Me Who Gets An Immediate Erection And Repeatedly Ejaculates At The Stakeout Cowgirl Position. Angel Moe
-date: 2023-09-07T00:26:00Z
-image: "FSDSS647.jpg"
-tags: [Censored,Breasts,Cowgirl,Slender,Slut,Solowork]
-maker: [FALENO]
-actress: [Amatsuka Moe]
+title: ABF-026 Amateur-kun And Two People Alone For A Whole Day. Thoroughly Exhausted And 10 Ejaculations Prohibited By Wise Man Time. Asuna Kawai Who Squeezes To The Limit
+date: 2023-09-07T00:25:00Z
+image: "abf026pl.jpg"
+tags: [Censored,Solowork,Masturbation,Big Tits,Titty Fuck,Subjectivity,4HR+,AV Actress	]
+maker: [Prestige  ]
+actress: [Kawai Asuna]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="br4yqgzDQwHPvBV">
+<div class="video" data-videoid="DMydlGZBRJUkedp">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS647/FSDSS647.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS647.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/abf026pl/abf026pl.jpg" width="WIDTH" height="HEIGHT" alt="abf026pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/br4yqgzDQwHPvBV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/DMydlGZBRJUkedp"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/xtkltnpg0e38"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/tpaqu05sgejo"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

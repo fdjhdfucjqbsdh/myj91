@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-647 Home Drinking Reverse NTR Her Best Friend’s Girlfriend Plays With Me Who Gets An Immediate Erection And Repeatedly Ejaculates At The Stakeout Cowgirl Position. Angel Moe
-date: 2023-09-07T00:26:00Z
-image: "FSDSS647.jpg"
-tags: [Censored,Breasts,Cowgirl,Slender,Slut,Solowork]
-maker: [FALENO]
-actress: [Amatsuka Moe]
+title: HOISW-025 Sweet! Champion 24 Schoolgirl Best! [Shortcut Special 2] ・Schoolgirl ・POV ・Amateur ・Pretty Girl ・Uniform ・Big Tits ・Facial Cumshot ・Creampie ・Cleaning Blowjob
+date: 2023-09-07T00:25:00Z
+image: "hoisw00025pl.jpg"
+tags: [Censored,Beautiful Girl,Big Tits,Cum,Delusion,POV,School Uniform]
+maker: [Amateur Hoi Hoi sweet! / Mousouzoku]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="br4yqgzDQwHPvBV">
+<div class="video" data-videoid="QJYOgbo32mF0QJ9">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS647/FSDSS647.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS647.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/hoisw00025pl/hoisw00025pl.jpg" width="WIDTH" height="HEIGHT" alt="hoisw00025pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/br4yqgzDQwHPvBV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/QJYOgbo32mF0QJ9"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Amatsuka Moe]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/xtkltnpg0e38"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/f6z5eqqibhy8"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

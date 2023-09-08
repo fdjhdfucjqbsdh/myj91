@@ -1,6 +1,6 @@
 ---
 author: j91
-title: code_title
+title: SSIS-853 Rookie No.1 STYLE Yuka Murakami AV Debut
 date: 2023-09-08T00:56:00Z
 image: "ssis853pl.jpg"
 tags: [Censored,Solowork,Big Tits,Debut Production,Beautiful Girl,Breasts	 ]
@@ -40,7 +40,7 @@ actress: [Murakami Yuuka]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/xy5paqrxd53v"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+    <a href="https://wolfstream.tv/xy5paqrxd53v"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-685 Real Sex That Will Change The World Eimi Fukada
-date: 2023-09-08T01:00:00Z
-image: "FSDSS685.jpg"
-tags: [Censored,Big Tits,Blowjob,Breasts,Solowork]
-maker: [FALENO]
-actress: [Fukada Eimi]
+title: BBAN-439 The Other Side Of The Ban On Love. Frustrated Idol Lesbians With Wet Tongues Baring And Frustrated Moeka Marui Miu Wakui
+date: 2023-09-08T00:28:00Z
+image: "bban439pl.jpg"
+tags: [Censored,Cosplay,Lesbian,Beautiful Girl,Lesbian Kiss,Entertainer	 ]
+maker: [Bibian]
+actress: [Marui Moeka, Wakui Mito ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="PDgRXxy91Of04yK">
+<div class="video" data-videoid="eaVLr4BzbzsYqQl">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS685/FSDSS685.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS685.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/bban439pl/bban439pl.jpg" width="WIDTH" height="HEIGHT" alt="bban439pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Fukada Eimi]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/PDgRXxy91Of04yK"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/eaVLr4BzbzsYqQl"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Fukada Eimi]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ev6lccqhves7"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/y2kodwd0jzhs"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

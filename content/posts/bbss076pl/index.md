@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-685 Real Sex That Will Change The World Eimi Fukada
-date: 2023-09-08T01:00:00Z
-image: "FSDSS685.jpg"
-tags: [Censored,Big Tits,Blowjob,Breasts,Solowork]
-maker: [FALENO]
-actress: [Fukada Eimi]
+title: BBSS-076 Daytime Lesbian Intercourse With The Best Mistress. 4 Hours
+date: 2023-09-08T00:28:00Z
+image: "bbss076pl.jpg"
+tags: [Censored,Lesbian,Married Woman,Affair,4HR+,Slender,Lesbian Kiss	 ]
+maker: [Bibian]
+actress: [ Sasahara Yuri, Niimura Akari, Kudo Manami, Tsukino Runa,Hanazawa Himari, Hirai Kanna  ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="PDgRXxy91Of04yK">
+<div class="video" data-videoid="m7OmvwR8aqUGmO">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS685/FSDSS685.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS685.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/bbss076pl/bbss076pl.jpg" width="WIDTH" height="HEIGHT" alt="bbss076pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Fukada Eimi]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/PDgRXxy91Of04yK"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/m7OmvwR8aqUGmO"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Fukada Eimi]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ev6lccqhves7"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/j9blw6x7urle"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

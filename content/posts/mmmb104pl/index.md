@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-666 I’ve Always Wanted To Fuck… A Record Of Two Days Of Giving My Friend’s Girlfriend An Aphrodisiac And Completely Fallen NTR… Ami Tokita
-date: 2023-09-09T01:00:00Z
-image: "FSDSS666.jpg"
-tags: [Censored,Big Tits,Breasts,Solowork,Squirting]
-maker: [ FALENO]
-actress: [Tokita Ami]
+title: MMMB-104 A Wife Who Gets Excited By Strangers' Stick Secret Sexual Habits Not Shown To Her Husband Affair Drama 4 Hours
+date: 2023-09-09T00:00:00Z
+image: "mmmb104pl.jpg"
+tags: [Censored,Creampie,Big Tits,Married Woman,Bride, Young Wife,4HR+,Drama	]
+maker: [Mellow Moon  ]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="jampZKVxb4SzZ6w">
+<div class="video" data-videoid="D4RbR79keYskga4">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS666/FSDSS666.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS666.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/mmmb104pl/mmmb104pl.jpg" width="WIDTH" height="HEIGHT" alt="mmmb104pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Tokita Ami]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/jampZKVxb4SzZ6w"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/D4RbR79keYskga4"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Tokita Ami]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/yruhagb74c4q"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/odqhs5a038nd"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

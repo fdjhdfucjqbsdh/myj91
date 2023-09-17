@@ -11,7 +11,7 @@ actress: [Tenma Yui]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Y7rpa0P3a2Hv4XB">
+<div class="video" data-videoid="Qb1eWdRWMdHJp9">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/1moon011pl/1moon011pl.jpg" width="WIDTH" height="HEIGHT" alt="1moon011pl.mp4" loading="lazy">
     </a>
@@ -31,7 +31,7 @@ actress: [Tenma Yui]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Y7rpa0P3a2Hv4XB"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/Qb1eWdRWMdHJp9"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Tenma Yui]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filelions.online/f/s0h3bid641nq"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
+    <a href="https://userscloud.com/eansa1k0dh9b"><button class="btn-hover color-9"><i class="fa fa-download"></i> UC</button></a></div>
 <br><br>
       </div>
     </div>

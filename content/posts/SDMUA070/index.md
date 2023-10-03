@@ -1,6 +1,6 @@
 ---
 author: j91
-title: SDMUA-070 L**i Breast Farm Monogatari: A Secret Farm And Girls Who Are Seed And Bred
+title: SDMUA-070 L**i Breast Farm Monogatari A Secret Farm And Girls Who Are Seed And Bred
 date: 2023-10-03T00:30:00Z
 image: "SDMUA070.jpg"
 tags: [Censored,3P&4P,Creampie,Evil,Restraint]

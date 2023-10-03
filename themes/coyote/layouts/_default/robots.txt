@@ -3,5 +3,4 @@ Disallow: /maker/
 Disallow: /actress/
 Disallow: /tags/
 Disallow: /adb/
-Disallow: /posts.xml
 Sitemap: {{ "sitemap.xml" | absLangURL }}

@@ -11,7 +11,7 @@ actress: [Sakuragi Mio]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="lk3bYkdLkbTzb1">
+<div class="video" data-videoid="mkO0aBZxjMFbPmw">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/FSDSS661/FSDSS661.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS661.mp4" loading="lazy">
     </a>
@@ -31,7 +31,7 @@ actress: [Sakuragi Mio]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/lk3bYkdLkbTzb1"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/mkO0aBZxjMFbPmw"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

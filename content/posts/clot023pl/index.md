@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-717 Hong Konger Erina [First Drama] Unable To Withstand The Temptation Of The Cantonese Teacher’s Breasts, We Overcome The Language Barrier
-date: 2023-10-05T01:31:00Z
-image: "FSDSS717.jpg"
-tags: [Censored,Big Tits,Blowjob,Drama,Solowork,Tutor]
-maker: [FALENO]
-actress: [Erena]
+title: CLOT-023 Pantyhose Crazy Father-in-law Erika Ozaki
+date: 2023-10-05T00:30:00Z
+image: "clot023pl.jpg"
+tags: [Censored,Solowork,Pantyhose,Breasts,Toy,Huge Butt,Business Attire	]
+maker: [Planet Plus  ]
+actress: [Ozaki Erika]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XPMBxRmDZ4fDJOV">
+<div class="video" data-videoid="rlZ8Kw62orIMVo">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS717/FSDSS717.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS717.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/clot023pl/clot023pl.jpg" width="WIDTH" height="HEIGHT" alt="clot023pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Erena]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XPMBxRmDZ4fDJOV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/rlZ8Kw62orIMVo"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Erena]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/issdiem9v4nq"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/99qst54nt0qd"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

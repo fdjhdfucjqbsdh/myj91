@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-717 Hong Konger Erina [First Drama] Unable To Withstand The Temptation Of The Cantonese Teacher’s Breasts, We Overcome The Language Barrier
-date: 2023-10-05T01:31:00Z
-image: "FSDSS717.jpg"
-tags: [Censored,Big Tits,Blowjob,Drama,Solowork,Tutor]
-maker: [FALENO]
-actress: [Erena]
+title: GAI-007 Eastern European Sex Friend! Slender Erotic Goddess With Outstanding Transparency AV Debut LizOcean
+date: 2023-10-05T00:30:00Z
+image: "gai007pl.jpg"
+tags: [Censored,Creampie,POV,Beautiful Girl,Slender,Shaved,White Actress	]
+maker: [GLAYz  ]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XPMBxRmDZ4fDJOV">
+<div class="video" data-videoid="XPqkye2el0IXra">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS717/FSDSS717.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS717.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/gai007pl/gai007pl.jpg" width="WIDTH" height="HEIGHT" alt="gai007pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Erena]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XPMBxRmDZ4fDJOV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/XPqkye2el0IXra"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Erena]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/issdiem9v4nq"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/90ml8ru2vquy"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

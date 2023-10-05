@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-717 Hong Konger Erina [First Drama] Unable To Withstand The Temptation Of The Cantonese Teacher’s Breasts, We Overcome The Language Barrier
-date: 2023-10-05T01:31:00Z
-image: "FSDSS717.jpg"
-tags: [Censored,Big Tits,Blowjob,Drama,Solowork,Tutor]
-maker: [FALENO]
-actress: [Erena]
+title: GNI-001 Newcomer Prestige Exclusive Debut Small But Big. 149cm Gcup Princess Himeno Karisu
+date: 2023-10-05T01:30:00Z
+image: "gni001.jpg"
+tags: [Censored,Big Tits,Debut Production,Solowork,Squirting]
+maker: [Prestige]
+actress: [Himeno Karisu]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XPMBxRmDZ4fDJOV">
+<div class="video" data-videoid="OaMbkp9oppFZVkg">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS717/FSDSS717.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS717.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/gni001/gni001.jpg" width="WIDTH" height="HEIGHT" alt="gni001.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Erena]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XPMBxRmDZ4fDJOV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/OaMbkp9oppFZVkg"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Erena]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/issdiem9v4nq"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/i62kan592lo8"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

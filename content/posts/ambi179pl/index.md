@@ -1,19 +1,19 @@
 ---
 author: j91
-title: FSDSS-717 Hong Konger Erina [First Drama] Unable To Withstand The Temptation Of The Cantonese Teacher’s Breasts, We Overcome The Language Barrier
-date: 2023-10-05T01:31:00Z
-image: "FSDSS717.jpg"
-tags: [Censored,Big Tits,Blowjob,Drama,Solowork,Tutor]
-maker: [FALENO]
-actress: [Erena]
+title: AMBI-179 She Seduces Me, A Virgin, With Her Small Breasts! ? Little Devil Cousin Yukinoeru
+date: 2023-10-05T00:44:00Z
+image: "ambi179pl.jpg"
+tags: [Censored,Blow,3P, 4P,Solowork,Beautiful Girl,School Uniform,Tits	]
+maker: [Planet Plus  ]
+actress: [Yukino Eru ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XPMBxRmDZ4fDJOV">
+<div class="video" data-videoid="bqWDXx00ZktPw2l">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS717/FSDSS717.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS717.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/ambi179pl/ambi179pl.jpg" width="WIDTH" height="HEIGHT" alt="ambi179pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +31,7 @@ actress: [Erena]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XPMBxRmDZ4fDJOV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/bqWDXx00ZktPw2l"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +40,7 @@ actress: [Erena]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/issdiem9v4nq"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/i8s5z0s7cb7t"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

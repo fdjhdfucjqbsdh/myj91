@@ -1,19 +1,20 @@
 ---
 author: j91
-title: DLDSS-234 [Absolute Rest] Slow Ejaculation Management That Makes The Patient Who Is Not Allowed To Move Writhe In Agony As The Stimulation Is Painful And Feels Good Suzume Mino
-date: 2023-10-06T00:49:00Z
-image: "DLDSS234.jpg"
-tags: [Censored,Big Tits,Breasts,Nurse,Slut,Solowork]
-maker: [DAHLIA]
-actress: [Mino Suzume]
+title: SSIS-897 I'll Never Forget This Day. I Reunited With My Childhood Friend Who Became A Beautiful Flight Attendant, We Went On A Date A Few Hours Before The Flight, Kissed, And Had A Lifetime Of Intense Sex That Felt Like Turbulence. Tsubasa Mai
+
+date: 2023-10-06T00:55:00Z
+image: "ssis897pl.jpg"
+tags: [Censored,Solowor,kBig Tits,Titty Fuck,Cowgirl,Slender,Kiss	]
+maker: [S1 NO.1 STYLE]
+actress: [Tsubasa Mai ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="g27BQbWR00sqoKX">
+<div class="video" data-videoid="PjbOB4GoJOtxOg">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/DLDSS234/DLDSS234.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS234.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/ssis897pl/ssis897pl.jpg" width="WIDTH" height="HEIGHT" alt="ssis897pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +32,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/g27BQbWR00sqoKX"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/PjbOB4GoJOtxOg"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filelions.online/f/h6u5ylljthfp"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
+    <a href="https://wolfstream.tv/nowkkd9ndblc"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

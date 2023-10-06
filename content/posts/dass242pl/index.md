@@ -1,19 +1,20 @@
 ---
 author: j91
-title: DLDSS-234 [Absolute Rest] Slow Ejaculation Management That Makes The Patient Who Is Not Allowed To Move Writhe In Agony As The Stimulation Is Painful And Feels Good Suzume Mino
-date: 2023-10-06T00:49:00Z
-image: "DLDSS234.jpg"
-tags: [Censored,Big Tits,Breasts,Nurse,Slut,Solowork]
-maker: [DAHLIA]
-actress: [Mino Suzume]
+title: DASS-242 Is Payment By Sperm Money? A Convenience Store Where You Can Pay For Creampie To A Beautiful Girl Clerk Sumire Kuramoto
+
+date: 2023-10-06T00:40:00Z
+image: "dass242pl.jpg"
+tags: [Censored,Creampie,Solowork,School Girls,Drama,Fantasy	]
+maker: [Das !]
+actress: [Kuramoto Sumire ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="g27BQbWR00sqoKX">
+<div class="video" data-videoid="KyA1RGaB0wUwqV">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/DLDSS234/DLDSS234.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS234.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/dass242pl/dass242pl.jpg" width="WIDTH" height="HEIGHT" alt="dass242pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +32,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/g27BQbWR00sqoKX"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/KyA1RGaB0wUwqV"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filelions.online/f/h6u5ylljthfp"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
+    <a href="https://wolfstream.tv/cjgj0pkocxr8"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

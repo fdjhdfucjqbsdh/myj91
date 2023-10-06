@@ -1,19 +1,20 @@
 ---
 author: j91
-title: DLDSS-234 [Absolute Rest] Slow Ejaculation Management That Makes The Patient Who Is Not Allowed To Move Writhe In Agony As The Stimulation Is Painful And Feels Good Suzume Mino
-date: 2023-10-06T00:49:00Z
-image: "DLDSS234.jpg"
-tags: [Censored,Big Tits,Breasts,Nurse,Slut,Solowork]
-maker: [DAHLIA]
-actress: [Mino Suzume]
+title: SSIS-895 My First Time...a Legendary Sex Worker Who Is Hungry For Sex. He Possesses Her And Devours All Erogenous Zones, Including Her Tongue, Ears, Nipples, Rod, Balls, Anus, And Limbs. 12 Shots Miru
+
+date: 2023-10-06T00:55:00Z
+image: "ssis895pl.jpg"
+tags: [Censored,Blow,Solowork,Cowgirl,Facials,Squirting,Slut,Slender	]
+maker: [S1 NO.1 STYLE]
+actress: [Miru ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="g27BQbWR00sqoKX">
+<div class="video" data-videoid="yMxzVrKKqxImw0">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/DLDSS234/DLDSS234.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS234.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/ssis895pl/ssis895pl.jpg" width="WIDTH" height="HEIGHT" alt="ssis895pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +32,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/g27BQbWR00sqoKX"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/yMxzVrKKqxImw0"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,7 @@ actress: [Mino Suzume]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filelions.online/f/h6u5ylljthfp"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
+    <a href="https://wolfstream.tv/tbans19aw06g"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

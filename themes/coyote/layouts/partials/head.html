@@ -13,6 +13,8 @@
   <script async defer src="https://buttons.github.io/buttons.js"></script>
   {{end}}
 
+  {{ template "_internal/google_analytics.html" . }}
+
 <title>{{ if not .IsHome }}{{ if .Title }}{{ .Title }} - {{ end }}{{ end }}{{ .Site.Title }}</title>
 
 {{ $sass := resources.Get "scss/style.scss" }}

@@ -7,13 +7,24 @@
 <link href="https://cdnjs.cloudflare.com/ajax/libs/normalize/8.0.1/normalize.min.css" rel="stylesheet" type="text/css" />
 <link rel='stylesheet' href='https://unpkg.com/boxicons@2.1.2/css/boxicons.min.css'>
 
+<!-- Google tag (gtag.js) -->
+<script async src="https://www.googletagmanager.com/gtag/js?id=G-TSY59ZM1W1"></script>
+<script>
+  window.dataLayer = window.dataLayer || [];
+  function gtag(){dataLayer.push(arguments);}
+  gtag('js', new Date());
+
+  gtag('config', 'G-TSY59ZM1W1');
+</script>
+
 <!-- Add other content here -->
 
   {{ if .HasShortcode "github_button" }}
   <script async defer src="https://buttons.github.io/buttons.js"></script>
   {{end}}
 
-{{ template "_internal/google_analytics.html" . }}
+  {{ template "_internal/google_analytics.html" . }}
+  {{ template "_internal/google_analytics_async.html" . }}
 
 <title>{{ if not .IsHome }}{{ if .Title }}{{ .Title }} - {{ end }}{{ end }}{{ .Site.Title }}</title>
 

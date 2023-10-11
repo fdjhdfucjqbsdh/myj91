@@ -1,6 +1,6 @@
 ---
 author: j91
-title: HEZ-598 Carefully Selected Best Wives: 12 Beautiful Wives Who Fall To Climax Due To Adulterous Sex
+title: HEZ-598 Carefully Selected Best Wives 12 Beautiful Wives Who Fall To Climax Due To Adulterous Sex
 
 date: 2023-10-11T00:00:00Z
 image: "hez598pl.jpg"

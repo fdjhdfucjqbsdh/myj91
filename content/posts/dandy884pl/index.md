@@ -3,9 +3,9 @@ author: j91
 title: DANDY-884 Is It Okay If I'm An Aunt? A Big-breasted Tutor Who Kindly Taught Me Sex To Improve Premature Ejaculation VOL.3 Complete Voyeur Angle Ver.
 
 date: 2023-10-14T00:35:00Z
-image: "isi_image.jpg"
+image: "dandy884pl.jpg"
 tags: [Censored,Creampie,Voyeur,Big Tits,Tutor,Mature Woman	]
-maker: [	Dandy]
+maker: [Dandy]
 actress: [ ]
 ---
 
@@ -14,7 +14,7 @@ actress: [ ]
 
 <div class="video" data-videoid="W9RgpGxb00sAx2">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/isi_image/isi_image.jpg" width="WIDTH" height="HEIGHT" alt="isi_image.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/dandy884pl/dandy884pl.jpg" width="WIDTH" height="HEIGHT" alt="isi_image.mp4" loading="lazy">
     </a>
 </div>
 

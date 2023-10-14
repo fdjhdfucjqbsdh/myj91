@@ -1,19 +1,20 @@
 ---
 author: j91
-title: GVH-592 Transform New Employees Through Training! A Training Plan To Make You A Slut! Walnut Sakura
-date: 2023-10-14T00:50:00Z
-image: "gvh592pl.jpg"
-tags: [Censored,Creampie,Solowork,Humiliation,Dirty Words,Slut	]
-maker: [Glory Quest  ]
-actress: [Kurumi Sakura ]
+title: MSMT-001 I Want To Mate With A Black Man! A Curious Black-haired Girl Gets Fucked With A Thick Black Rod And Turned Into A Female! Chiharu Miyazawa
+
+date: 2023-10-14T00:32:00Z
+image: "msmt001pl.jpg"
+tags: [Censored,Solowork,Deep Throating,Mini,Black Actor,Huge Cock	]
+maker: [Mismatch-Emanuel]
+actress: [Miyazawa Chiharu ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="QrYVrgZoeLFk3k">
+<div class="video" data-videoid="6qreR2AwQXf9BBO">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/gvh592pl/gvh592pl.jpg" width="WIDTH" height="HEIGHT" alt="gvh592pl.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/msmt001pl/msmt001pl.jpg" width="WIDTH" height="HEIGHT" alt="msmt001pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +32,7 @@ actress: [Kurumi Sakura ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/QrYVrgZoeLFk3k"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/6qreR2AwQXf9BBO"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,7 @@ actress: [Kurumi Sakura ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/cfc79b5cg51h"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/3sf3w031r2xf"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

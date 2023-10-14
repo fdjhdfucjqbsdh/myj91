@@ -1,19 +1,20 @@
 ---
 author: j91
-title: GVH-592 Transform New Employees Through Training! A Training Plan To Make You A Slut! Walnut Sakura
-date: 2023-10-14T00:50:00Z
-image: "gvh592pl.jpg"
-tags: [Censored,Creampie,Solowork,Humiliation,Dirty Words,Slut	]
-maker: [Glory Quest  ]
-actress: [Kurumi Sakura ]
+title: FSDSS-672 "I Keep Getting R***d…" A Beautiful Wife From A Rural Area Trains A Young Man From The City Near Her Husband And Falls In Love With A Human Bullet Piston. Nene Yoshitaka
+
+date: 2023-10-14T00:59:00Z
+image: "fsdss672.jpg"
+tags: [Censored,Blowjob,Breasts,Drama,Exposure,Outdoors,Solowork]
+maker: [FALENO]
+actress: [Yoshitaka Nene]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="QrYVrgZoeLFk3k">
+<div class="video" data-videoid="aRgM6V4MR3IMj0">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/gvh592pl/gvh592pl.jpg" width="WIDTH" height="HEIGHT" alt="gvh592pl.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/fsdss672/fsdss672.jpg" width="WIDTH" height="HEIGHT" alt="fsdss672.mp4" loading="lazy">
     </a>
 </div>
 
@@ -31,7 +32,7 @@ actress: [Kurumi Sakura ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/QrYVrgZoeLFk3k"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/aRgM6V4MR3IMj0"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,7 @@ actress: [Kurumi Sakura ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/cfc79b5cg51h"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/2znee36bb6bz"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

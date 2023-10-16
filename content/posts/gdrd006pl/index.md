@@ -4,7 +4,7 @@ title: GDRD-006 Red Dragon Lima Arai
 date: 2023-08-05T00:55:00Z
 image: "gdrd006pl.jpg"
 tags: [Censored, Handjob,Creampie,Solowork,Titty Fuck,Prostitutes,Documentary	]
-maker: [GOLD / Mousozoku  ]
+maker: [GOLD - Mousozoku  ]
 actress: [Arai Rima ]
 ---
 

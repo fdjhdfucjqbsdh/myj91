@@ -4,6 +4,8 @@ title: GDRD-004
 date: 2023-07-08T03:00:00Z
 image: "gdrd004pl.jpg"
 tags: [censored]
+maker: [GOLD - Mousozoku  ]
+
 ---
 
 ###  Red Dragon Nono Yuki

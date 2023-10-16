@@ -5,7 +5,7 @@ title: BONY-065 A Beautiful Female College Student Is Targeted By A Stalker At H
 date: 2023-10-06T00:09:00Z
 image: "bony065pl.jpg"
 tags: [Censored,Creampie,Restraint,Solowork,Foreign Objects,Urination,Evil	]
-maker: [ボニータ/妄想族]
+maker: [ボニータ-妄想族]
 actress: [Yura Kana ]
 ---
 

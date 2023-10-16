@@ -14,7 +14,7 @@ actress: [Nagano Suzu]
 
 <div class="video" data-videoid="jplk0v8l6gczl8g">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS688/FSDSS688.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS688.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/FSDSS688.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS688.mp4" loading="lazy">
     </a>
 </div>
 

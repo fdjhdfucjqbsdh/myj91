@@ -1,20 +1,21 @@
 ---
 author: j91
-title: FSDSS-688 Newcomer Suzu Nagano AV Debut
-url: /posts/FSDSS688.html
-date: 2023-10-17T01:59:00Z
-image: "FSDSS688.jpg"
-tags: [Censored,Breasts,Debut Production,Female College Student,Slender,Solowork]
-maker: [FALENO]
-actress: [Nagano Suzu]
+title: 740YMTK-024 Mr. G 28 Years Old 02 (Mai Onodera)
+
+url: /v/pb_e_740ymtk-024.html
+date: 2023-10-17T00:00:00Z
+image: "pb_e_740ymtk-024.jpg"
+tags: [Amateur,Creampie,Cuckold,POV,Slender ]
+maker: [ ]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="jplk0v8l6gczl8g">
+<div class="video" data-videoid="ybJOmXxX6zFk60">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/posts/FSDSS688.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS688.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/pb_e_740ymtk-024.jpg" width="WIDTH" height="HEIGHT" alt="pb_e_740ymtk-024.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +33,7 @@ actress: [Nagano Suzu]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/jplk0v8l6gczl8g"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/ybJOmXxX6zFk60"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +42,7 @@ actress: [Nagano Suzu]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/4l4e7ygsbtci"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://filelions.online/f/ibedcva8723l"><button class="btn-hover color-9"><i class="fa fa-download"></i> DAV</button></a></div>
 <br><br>
       </div>
     </div>

@@ -4,7 +4,7 @@ title: HERY-138 Man's Daughter, Complete Female Collection 34 Haruka Kisaragi
 date: 2023-09-23T00:30:00Z
 image: "hery138pl.jpg"
 tags: [Censored,Transsexual,Solowork,Other Fetish,Nasty, Hardcore,Cross Dressing	]
-maker: [Yellow / HERO  ]
+maker: [Yellow -HERO  ]
 actress: [Kisaragi Haruka ]
 ---
 

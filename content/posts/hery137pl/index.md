@@ -4,7 +4,7 @@ title: HERY-137 Man's Daughter, Complete Female Collection 33 Nanao Ayaha
 date: 2023-08-19T00:00:00Z
 image: "hery137pl.jpg"
 tags: [Censored, Transsexual,Solowork,Other Fetish,Nasty, Hardcore,Cross Dressing	]
-maker: [Yellow / HERO  ]
+maker: [Yellow - HERO  ]
 actress: [Nanao Ayaha ]
 ---
 

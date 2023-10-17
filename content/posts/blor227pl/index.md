@@ -4,7 +4,7 @@ title: BLOR-227 An Apparel Clerk Who Is Slender But Has An Erotic Big Ass Drinki
 date: 2023-09-23T00:30:00Z
 image: "blor227pl.jpg"
 tags: [Censored,Facials,Glasses,Massage,Slender,Rolling Back Eyes / Fainting	]
-maker: [Burokkori- / Mousou Zoku  ]
+maker: [Burokkori-Mousou Zoku  ]
 actress: [Tooyama Maki ]
 ---
 

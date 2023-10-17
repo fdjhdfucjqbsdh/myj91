@@ -4,6 +4,7 @@ title: CHIB-001 When I Brought A Really Small Girl To A Multi-tenant Building, S
 date: 2023-07-15T03:00:00Z
 image: "chib001pl.jpg"
 tags: [censored]
+maker: [Zennihon Kameko Kyoudou Kumiai- Mousozoku  ]
 ---
 ___
 

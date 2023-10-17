@@ -4,7 +4,7 @@ title: BDA-179 Black Awakening True Black Shock Ayaka Mochizuki
 date: 2023-08-19T00:50:00Z
 image: "bda179pl.jpg"
 tags: [Censored,Creampie,Solowork,Squirting,Deep Throating,Black Actor,Huge Cock	 ]
-maker: [Bermuda / Mousouzoku  ]
+maker: [Bermuda - Mousouzoku  ]
 actress: [Mochizuki Ayaka ]
 ---
 

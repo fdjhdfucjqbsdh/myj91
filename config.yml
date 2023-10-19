@@ -10,14 +10,8 @@ sitemap:
   changeFreq: "hourly"
   filename: sitemap.xml
 
-# params:
-#   profile:
-#     enabled: true
-#     name: John Doe
-#     description: I've got something to tell you now, Walkman
-#   social:
-#     - name: github
-#       url: https://j4ev.pages.dev
+ params:
+     description: Free Japanese adult videos
 
 menu:
   main:

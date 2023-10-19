@@ -2,7 +2,6 @@ baseURL: "https://my.j91.asia"
 title: Javsubs91
 paginate: 20
 theme: coyote
-DefaultContentLanguage: "en"
 
 enableRobotsTXT: true
 googleAnalytics: G-TSY59ZM1W1

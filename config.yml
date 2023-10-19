@@ -2,21 +2,13 @@ baseURL: "https://my.j91.asia"
 title: Javsubs91
 paginate: 20
 theme: coyote
+
 enableRobotsTXT: true
 googleAnalytics: G-TSY59ZM1W1
 
 sitemap:
   changeFreq: "hourly"
   filename: sitemap.xml
-
-# params:
-#   profile:
-#     enabled: true
-#     name: John Doe
-#     description: I've got something to tell you now, Walkman
-#   social:
-#     - name: github
-#       url: https://j4ev.pages.dev
 
 menu:
   main:

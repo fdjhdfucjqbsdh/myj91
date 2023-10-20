@@ -12,7 +12,7 @@ actress: [Sawaki Momoka  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="z1vBDeyDwoCYw0l">
+<div class="video" data-videoid="9kVgWzAZaOfZGB">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/bokd279pl/bokd279pl.jpg" width="WIDTH" height="HEIGHT" alt="bokd279pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [Sawaki Momoka  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/z1vBDeyDwoCYw0l"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/9kVgWzAZaOfZGB"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

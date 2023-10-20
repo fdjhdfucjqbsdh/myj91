@@ -12,7 +12,7 @@ actress: [Hinata Kaede ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="bVJz8769myiPe8J">
+<div class="video" data-videoid="4x8kOX96bOuKbZj">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/ssis998pl/ssis998pl.jpg" width="WIDTH" height="HEIGHT" alt="ssis998pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [Hinata Kaede ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/bVJz8769myiPe8J"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/4x8kOX96bOuKbZj"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

@@ -12,7 +12,7 @@ actress: [ Yoshikawa Aimi, Hazuki Mion, Saitou Miyu ,Kujou Sayaka, Kirishima Sak
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="G3mLOaXr29s1z64">
+<div class="video" data-videoid="46B36amqyYskGY">
     <a href="javascript:;">
         <img src="https://my.j91.asia/posts/umso522pl/umso522pl.jpg" width="WIDTH" height="HEIGHT" alt="umso522pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [ Yoshikawa Aimi, Hazuki Mion, Saitou Miyu ,Kujou Sayaka, Kirishima Sak
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/G3mLOaXr29s1z64"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/46B36amqyYskGY"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +41,7 @@ actress: [ Yoshikawa Aimi, Hazuki Mion, Saitou Miyu ,Kujou Sayaka, Kirishima Sak
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/et7imt6wo7mj"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/whapghcuxxfp"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

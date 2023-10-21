@@ -1,11 +1,12 @@
 ---
 author: j91
-title: code_title
+title: KTRA-576 My Childhood Friend Who Is An Honor Student Is Very Competitive! That's Why When People Make Fun Of Me, I Try My Hardest To Do Naughty Things! Mito Wakui
+
 date: 2023-10-21T01:30:00Z
 image: "ktra576pl.jpg"
-tags: [Censored, ]
-maker: [ ]
-actress: [ ]
+tags: [Censored,Blow,Creampie,Solowork,Subjectivity,Childhood Friend	 ]
+maker: [Ke- . Toraibu   ]
+actress: [Wakui Mito ]
 ---
 
 

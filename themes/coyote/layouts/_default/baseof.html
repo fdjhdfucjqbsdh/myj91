@@ -7,13 +7,12 @@
     
 <meta name="description" content="Free Japanese adult videos, {{ .Title }}">
     
-{{ $href := .Permalink }}
-{{ with $paginator }}
-  {{ if gt .PageNumber 1 }}
-    {{ $href = printf "%s%s/%d/" $.Permalink "page" .PageNumber }}
-  {{ end }}
-{{ end }}
-<link rel="canonical" href="{{ $href }}">
+{{ $pag := .Paginate .Data.Pages }}
+{{ if $pag.HasPrev }}
+     <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
+{{ else }}
+     <link rel="canonical" href="{{ .Permalink }}" />
+{{end}}
 
     
 <meta name="robots" content="index,follow" />

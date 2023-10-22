@@ -7,17 +7,12 @@
     
 <meta name="description" content="Free Japanese adult videos, {{ .Title }}">
     
-    {{- if .Paginator }}
-    {{- if .Paginator.HasPrev }}
-    <link rel="prev" href="{{ .Paginator.Prev.URL | absURL }}" />
-    {{- end }}
-    {{- if .Paginator.HasNext }}
-    <link rel="next" href="{{ .Paginator.Next.URL | absURL }}" />
-    {{- end }}
-    <link rel="canonical" href="{{ .Paginator.URL | absURL }}" />
-    {{- else }}
-    <link rel="canonical" href="{{ .Permalink }}" />
-    {{- end }}
+{{ $pag := .Paginate .Data.Pages }}
+{{ if $pag.HasPrev }}
+     <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
+{{ else }}
+     <link rel="canonical" href="{{ .Permalink }}" />
+{{end}}
 
 
     

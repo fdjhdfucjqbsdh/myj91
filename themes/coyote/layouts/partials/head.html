@@ -17,17 +17,16 @@
 
   {{ template "_internal/google_analytics.html" . }}
 
-{{ $currentTag := .Title }}
-
-{{ range .Site.Taxonomies.tags }}
-
-    {{ range $.Paginator.Pages }}
-
-        {{ $.Scratch.Set "title" (printf "Page %v of %v | Projects tagged %s | %s" $.Paginator.PageNumber $.Paginator.TotalPages $currentTag .Site.Params.Title) }}
-
-    {{ end }}
-			
+{{ $theTitle := .Title }}
+{{ $titlePaginator := .Paginate (where .Pages "Type" "posts") }}
+{{ template "_internal/pagination.html" . }}
+{{ range $titlePaginator.Pages }}
+   {{ if (eq $theTitle .Title) }}
+   		{{ $currentPageNumber := .PageNumber }}
+   		{{ $totalPageNumber := .TotalPages }}
+	{{ end }}
 {{ end }}
+<title>{{ $yourtitle }} / Page {{ $currentPageNumber }} of {{ $totalPageNumbers }}</title>
 
 {{ $sass := resources.Get "scss/style.scss" }}
 {{ $style := $sass | resources.ToCSS | minify | resources.Fingerprint "sha256" }}

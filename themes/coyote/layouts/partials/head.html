@@ -26,7 +26,7 @@
    		{{ $totalPageNumber := .TotalPages }}
 	{{ end }}
 {{ end }}
-<title>{{ $yourtitle }} / Page {{ $currentPageNumber }} of {{ $totalPageNumbers }}</title>
+<title>{{ $theTitle }} / Page {{ $currentPageNumber }} of {{ $totalPageNumbers }}</title>
 
 {{ $sass := resources.Get "scss/style.scss" }}
 {{ $style := $sass | resources.ToCSS | minify | resources.Fingerprint "sha256" }}

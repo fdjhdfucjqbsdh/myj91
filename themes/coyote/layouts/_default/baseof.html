@@ -7,14 +7,14 @@
     
 <meta name="description" content="Free Japanese adult videos, {{ .Title }}">
     
-{{ $pag := .Paginate .Data.Pages }}
-{{ if $pag.HasPrev }}
-     <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
-{{ else }}
-     <link rel="canonical" href="{{ .Permalink }}" />
-{{end}}
+{{ $paginator := .Paginate (where .Site.RegularPages ".Params.post" "!=" false) }}
 
-
+{{ $permalink := .Permalink }}
+{{ with $paginator }}
+    {{ if and (or $.IsHome $.IsNode) (ne .PageNumber 1) }}
+        {{ $permalink = print $permalink "page/" .PageNumber "/" }}
+    {{ end }}
+{{ end }}
     
 <meta name="robots" content="index,follow" />
 <meta name="googlebot" content="index,follow" />

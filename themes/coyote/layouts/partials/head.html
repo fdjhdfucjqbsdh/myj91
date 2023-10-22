@@ -17,17 +17,17 @@
 
   {{ template "_internal/google_analytics.html" . }}
 
-<title>
- {{- if .IsHome -}}
-   Home | {{ .Site.Title }}
- {{- else if .Params.hide_site_title -}}
-   {{ .Page.Title }}
- {{- else if .Page.Title -}}
-   {{ .Page.Title }} | {{ .Site.Title }}
- {{- else -}}
-   {{ .Site.Title }}
- {{- end -}}
-</title> 
+{{ $currentTag := .Title }}
+
+{{ range .Site.Taxonomies.tags }}
+
+    {{ range $.Paginator.Pages }}
+
+        {{ $.Scratch.Set "title" (printf "Page %v of %v | Projects tagged %s | %s" $.Paginator.PageNumber $.Paginator.TotalPages $currentTag .Site.Params.Title) }}
+
+    {{ end }}
+			
+{{ end }}
 
 {{ $sass := resources.Get "scss/style.scss" }}
 {{ $style := $sass | resources.ToCSS | minify | resources.Fingerprint "sha256" }}

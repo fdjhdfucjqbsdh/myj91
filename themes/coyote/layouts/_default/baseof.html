@@ -6,10 +6,15 @@
     {{- partial "head.html" . -}}   
     
 <meta name="description" content="Free Japanese adult videos, {{ .Title }}">
-<base href="{{ .Permalink }}" />
-<link rel="canonical" href="{{ .Permalink }}" itemprop="url" />
-<meta name="url" content="{{ .Permalink }}" />
-<meta property="og:url" content="{{ .Permalink }}" />
+    
+{{ $href := .Permalink }}
+{{ with $paginator }}
+  {{ if gt .PageNumber 1 }}
+    {{ $href = printf "%s%s/%d/" $.Permalink "page" .PageNumber }}
+  {{ end }}
+{{ end }}
+<link rel="canonical" href="{{ $href }}">
+
 <meta name="robots" content="index,follow" />
 <meta name="googlebot" content="index,follow" />
 

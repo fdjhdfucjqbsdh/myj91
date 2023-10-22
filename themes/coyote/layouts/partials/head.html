@@ -17,17 +17,17 @@
 
   {{ template "_internal/google_analytics.html" . }}
 
-{{ $theTitle := .Title }}
-{{ $titlePaginator := .Paginate (where .Pages "Type" "posts") }}
-{{ template "_internal/pagination.html" . }}
-{{ range $titlePaginator.Pages }}
-   {{ if (eq $theTitle .Title) }}
-   		{{ $currentPageNumber := .PageNumber }}
-   		{{ $totalPageNumber := .TotalPages }}
-	{{ end }}
-{{ end }}
-<title>{{ $theTitle }} / Page {{ $currentPageNumber }} of {{ $totalPageNumbers }}</title>
-
+<title>
+ {{- if .IsHome -}}
+   Home | {{ .Site.Title }}
+ {{- else if .Params.hide_site_title -}}
+   {{ .Page.Title }}
+ {{- else if .Page.Title -}}
+   {{ .Page.Title }} | {{ .Site.Title }}
+ {{- else -}}
+   {{ .Site.Title }}
+ {{- end -}}
+</title> 
 {{ $sass := resources.Get "scss/style.scss" }}
 {{ $style := $sass | resources.ToCSS | minify | resources.Fingerprint "sha256" }}
 <link rel="stylesheet" href="{{ $style.RelPermalink }}">

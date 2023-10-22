@@ -7,10 +7,17 @@
     
 <meta name="description" content="Free Japanese adult videos, {{ .Title }}">
     
- <link rel="canonical" href="{{ .Permalink }}">
-    {{ if (isset .Paginator.HasPrev ) }}
-      <link rel="prev" href="{{ .Paginator.Prev.URL  }}">
-    {{ end }}
+{{ if and .Params.paginate .Paginator }}
+  <link itemprop="url" rel="canonical" href="{{ .Paginator.URL }}">
+  {{ if .Paginator.HasNext }}
+    <link rel="next" href="{{ .Paginator.Next.URL }}" />
+  {{end}}
+  {{ if .Paginator.HasPrev }}
+    <link rel="prev" href="{{ .Paginator.Prev.URL }}" />
+  {{end}}        
+{{ else }}
+  <link itemprop="url" rel="canonical" href="{{ .Permalink }}"/>
+{{ end }}
     
 <meta name="robots" content="index,follow" />
 <meta name="googlebot" content="index,follow" />

@@ -12,7 +12,7 @@ actress: [ Tateoka Anna ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="d8AeZYQPMzSkabw">
+<div class="video" data-videoid="jO3BRmWxlBuzP6Y">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/fera182pl.jpg" width="WIDTH" height="HEIGHT" alt="fera182pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [ Tateoka Anna ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/d8AeZYQPMzSkabw"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/jO3BRmWxlBuzP6Y"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

@@ -12,7 +12,7 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="q318k276vqfz3Bx">
+<div class="video" data-videoid="jABzg8eXj6Fz1G6">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/mtes110pl.jpg" width="WIDTH" height="HEIGHT" alt="mtes110pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/q318k276vqfz3Bx"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/jABzg8eXj6Fz1G6"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

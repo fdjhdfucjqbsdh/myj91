@@ -1,6 +1,6 @@
 ---
 author: j91
-title: SVVRT-036 Amateur Variety: Midsummer Bikini J○ Takes On The Tight Rotor Challenge! Insert The Rotor Into The Pussy Until The Vaginal Opening Can No Longer Close! If You Win, You’ll Take All The Prize Money, And If You Lose, You’ll Get Creampied Immediately! 3
+title: SVVRT-036 Amateur Variety, Midsummer Bikini J○ Takes On The Tight Rotor Challenge! Insert The Rotor Into The Pussy Until The Vaginal Opening Can No Longer Close! If You Win, You’ll Take All The Prize Money, And If You Lose, You’ll Get Creampied Immediately! 3
 url: /v/svvrt00036pl.html
 date: 2023-10-26T02:00:00Z
 image: "svvrt00036pl.jpg"

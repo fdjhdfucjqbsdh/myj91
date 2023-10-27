@@ -31,7 +31,7 @@
 
   &__header {
     position: relative;
-    padding-top: 50%;
+    padding-top: 67%;
   }
 
   &__image {
@@ -45,19 +45,20 @@
   }
 
   &__text {
-    padding-top: 1.2rem;
-    padding-right: 1.6rem;
-    padding-left: 1.6rem;
+	 padding-top: 1.2rem;
+	 padding-right: 0.5rem;
+	 padding-left: 0.5rem;
   }
 
   &__title {
-    font-size: 1.1rem;
-    font-weight: 700;
-    line-height: 1.1;
-    overflow: hidden;
+	 font-size: 0.9rem;
+	 font-weight: 600;
+	 line-height: 1.1;
+	 overflow: hidden;
   }
 
   &__footer {
+    text-align: right;
     padding: 1rem 1.4rem 1.6rem;
     color: #93a5b1;
     font-size: 1.1rem;

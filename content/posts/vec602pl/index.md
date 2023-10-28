@@ -41,7 +41,8 @@ actress: [Tateoka Anna]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/a8giu50l4wrh.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <p><a href="https://wolfstream.tv/a8giu50l4wrh.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+    <p><a href="https://userscloud.com/k03hicf4mlmy"><button class="btn-hover color-2"><i class="fa fa-download"></i> ID.SUB</button></a></p></div>
 <br><br>
       </div>
     </div>

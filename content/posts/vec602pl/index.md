@@ -31,7 +31,8 @@ actress: [Tateoka Anna]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/3ppGw4m7kphl0x"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/3ppGw4m7kphl0x"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://userscloud.com/dkbz1079v6u8"><button class="btn-hover color-1"><i class="fa fa-download"></i> EN.SUB</button></a></p></div>
     </div>
   </div>
 </div>

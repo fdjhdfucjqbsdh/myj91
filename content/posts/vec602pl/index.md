@@ -32,7 +32,7 @@ actress: [Tateoka Anna]
 	      	      <br>
 <div class="buttons">  
 <p><a href="https://streamtape.to/v/3ppGw4m7kphl0x"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://userscloud.com/dkbz1079v6u8"><button class="btn-hover color-1"><i class="fa fa-download"></i> EN.SUB</button></a></p></div>
+<p><a href="https://userscloud.com/dkbz1079v6u8"><button class="btn-hover color-8"><i class="fa fa-download"></i> EN.SUB</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Tateoka Anna]
 	      <br>
 <div class="buttons">
     <p><a href="https://wolfstream.tv/a8giu50l4wrh.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-    <p><a href="https://userscloud.com/k03hicf4mlmy"><button class="btn-hover color-2"><i class="fa fa-download"></i> ID.SUB</button></a></p></div>
+    <p><a href="https://userscloud.com/k03hicf4mlmy"><button class="btn-hover color-8"><i class="fa fa-download"></i> ID.SUB</button></a></p></div>
 <br><br>
       </div>
     </div>

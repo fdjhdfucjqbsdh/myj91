@@ -4,7 +4,7 @@ title: GDRD-003
 date: 2023-07-08T03:00:00Z
 image: "gdrd003pl.jpg"
 tags: [censored]
-maker: [GOLD - Mousozoku  ]
+maker: [GOLD- Mousozoku  ]
 
 ---
 

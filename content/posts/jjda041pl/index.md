@@ -4,7 +4,7 @@ title: JJDA-041 My Son's Homeroom Female Teacher... Miho Tsuno
 date: 2023-09-29T00:19:00Z
 image: "jjda041pl.jpg"
 tags: [Censored,Solowork,Female Teacher,Breasts,Affair,Slender,Mature Woman	]
-maker: [Jukujo Daigaku/ Jukujo Manji]
+maker: [Jukujo Daigaku- Jukujo Manji]
 actress: [Tsuno Miho]
 ---
 

@@ -8,12 +8,6 @@
 <meta name="description" content="Javsubs91 Free Japanese adult videos, {{ .Title }}">
 
 {{ $paginator := slice }}
-{{ if .IsHome }}
-  {{ $paginator = .Paginate (where .Site.RegularPages "Section" "blog") }}
-{{ else }}
-  {{ $paginator = .Paginate .Pages }}
-{{ end }}
-
 {{ $href := .Permalink }}
 {{ with $paginator }}
   {{ if gt .PageNumber 1 }}

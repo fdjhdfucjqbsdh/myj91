@@ -7,15 +7,6 @@
     
 <meta name="description" content="Javsubs91 Free Japanese adult videos, {{ .Title }}">
 
-{{ $paginator := .Paginate (where .Site.RegularPages ".Params.post" "!=" false) }}
-{{ $href := .Permalink }}
-{{ with $paginator }}
-  {{ if gt .PageNumber 1 }}
-    {{ $href = printf "%s%s/%d/" $.Permalink "page" .PageNumber }}
-  {{ end }}
-{{ end }}
-<link rel="canonical" href="{{ $href }}">
-
 <base href="{{ .Permalink }}" />
 <link rel="canonical" href="{{ .Permalink }}" itemprop="url" />
 <meta name="url" content="{{ .Permalink }}" />

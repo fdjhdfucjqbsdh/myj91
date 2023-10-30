@@ -7,10 +7,19 @@
     
 <meta name="description" content="Javsubs91 Free Japanese adult videos, {{ .Title }}">
 
-
-{{ if .Paginator}}
-<link rel="canonical" href="{{ .Paginator.URL }}">{{else}}
-<link rel="canonical" href="{{ .Permalink }}">
+{{ if .Params.paginate }}
+  {{ $paginator := (.Paginator .Params.paginate) }}
+{{ end }}
+{{ if and .Params.paginate .Paginator }}
+  <link itemprop="url" rel="canonical" href="{{ .Paginator.URL }}">
+  {{ if .Paginator.HasNext }}
+    <link rel="next" href="{{ .Paginator.Next.URL }}" />
+  {{end}}
+  {{ if .Paginator.HasPrev }}
+    <link rel="prev" href="{{ .Paginator.Prev.URL }}" />
+  {{end}}        
+{{ else }}
+  <link itemprop="url" rel="canonical" href="{{ .Permalink }}"/>
 {{ end }}
 
 

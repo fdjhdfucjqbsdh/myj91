@@ -9,7 +9,7 @@
 
 
     {{ $pag := .Paginate .Data.Pages }}
-{{ if $pag.HasPrev }}
+{{ if $pag.Next }}
      <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
 {{ else }}
      <link rel="canonical" href="{{ .Permalink }}" />

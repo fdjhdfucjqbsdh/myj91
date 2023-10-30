@@ -6,6 +6,15 @@
     {{- partial "head.html" . -}}   
     
 <meta name="description" content="Javsubs91 Free Japanese adult videos, {{ .Title }}">
+
+{{ $paginator := .Paginate .Data.Pages }}
+{{ if $paginator.HasPrev }}
+     <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
+{{ else }}
+     <link rel="canonical" href="{{ .Permalink }}" />
+{{end}}
+
+
     
 <base href="{{ .Permalink }}" />
 <link rel="canonical" href="{{ .Permalink }}" itemprop="url" />

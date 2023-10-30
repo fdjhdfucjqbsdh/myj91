@@ -7,6 +7,15 @@
     
 <meta name="description" content="Javsubs91 Free Japanese adult videos, {{ .Title }}">
 
+
+    {{ $pag := .Paginate .Data.Pages }}
+{{ if $pag.HasPrev }}
+     <link rel="canonical" href="{{ .Paginator.URL | absURL}}" />
+{{ else }}
+     <link rel="canonical" href="{{ .Permalink }}" />
+{{end}}
+
+
 <base href="{{ .Permalink }}" />
 <link rel="canonical" href="{{ .Permalink }}" itemprop="url" />
 <meta name="url" content="{{ .Permalink }}" />

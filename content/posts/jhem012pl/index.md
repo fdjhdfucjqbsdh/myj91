@@ -4,7 +4,7 @@ title: JHEM-012 Ling FUCK! A Black Cock Sticking Into A Japanese Pussy! ! 5 Matu
 date: 2023-09-02T00:00:00Z
 image: "jhem012pl.jpg"
 tags: [Censored,3P, 4P,Best, Omnibus,Married Woman,Abuse,Mature Woman	 ]
-maker: [Jukujo Honpo/ Emmanuelle   ]
+maker: [Jukujo Honpo- Emmanuelle  ]
 actress: [Hatsuki Nozomi, Mizumi Saki, Kobayakawa Reiko, Kahara Minako, Midou Kanae  ]
 ---
 

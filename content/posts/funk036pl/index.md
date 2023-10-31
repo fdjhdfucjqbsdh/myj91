@@ -4,7 +4,7 @@ title: FUNK-036 Live Action Version Beautiful Teacher Is A Prisoner Of Shame Hik
 date: 2023-07-29T00:00:00Z
 image: "funk036pl.jpg"
 tags: [Censored, Creampie,Solowork,Humiliation,Female Teacher,Drama,Original Collaboration	]
-maker: [FunCity / Mousozoku  ]
+maker: [FunCity- Mousozoku  ]
 actress: [Iwasa Mei]
 ---
 

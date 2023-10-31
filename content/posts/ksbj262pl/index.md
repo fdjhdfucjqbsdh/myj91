@@ -4,7 +4,7 @@ title: KSBJ-262 Drunk And Defenseless, I'm In A Situation Where I'm Alone With M
 date: 2023-09-02T00:20:00Z
 image: "ksbj262pl.jpg"
 tags: [Censored,Best, Omnibus,Big Tits,Married Woman,4HR+,Huge Butt	 ]
-maker: [ KSB Kikaku / Emmanuelle  ]
+maker: [KSB Kikaku- Emmanuelle  ]
 actress: [Tsujii Honoka ,Kurokawa Sumire,Maki Kyouko, Honjou Hitomi, Nakamura Tomoe, Mizukawa Sumire ]
 ---
 

@@ -4,7 +4,7 @@ title: KTKZ-104 I'm A Virgin. I Came All The Way From Kansai To Tokyo Today. Mom
 date: 2023-10-14T00:30:00Z
 image: "ktkz104pl.jpg"
 tags: [Censored,Beautiful Girl,Virgin]
-maker: [Kichikkusu / Mousou Zoku  ]
+maker: [Kichikkusu- Mousou Zoku  ]
 actress: [ ]
 ---
 

@@ -4,7 +4,7 @@ title: FUNK-046 Live-action Version Beautiful Teacher Is A Prisoner Of Shame Sem
 date: 2023-09-30T00:45:00Z
 image: "funk046pl.jpg"
 tags: [Censored,Solowork,Outdoors,Humiliation,Female Teacher,Drama,Original Collaboration	]
-maker: [FunCity / Mousozoku  ]
+maker: [FunCity- Mousozoku  ]
 actress: [Komatsu An ]
 ---
 

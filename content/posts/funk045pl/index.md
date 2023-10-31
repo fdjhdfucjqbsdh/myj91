@@ -4,7 +4,7 @@ title: FUNK-045 My Student, A Devilish J-type Student Who I Must Never Touch, Wh
 date: 2023-09-30T00:45:00Z
 image: "funk045pl.jpg"
 tags: [Censored,Solowork,School Girls,Other Fetish,Dirty Words,Slut,Drama	]
-maker: [FunCity / Mousozoku  ]
+maker: [FunCity- Mousozoku  ]
 actress: [Nagisa Mitsuki]
 ---
 

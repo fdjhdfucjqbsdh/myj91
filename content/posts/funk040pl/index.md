@@ -4,7 +4,7 @@ title: FUNK-040 Live Action Version Beautiful Teacher Is A Prisoner Of Shame Yur
 date: 2023-09-02T00:00:00Z
 image: "funk040pl.jpg"
 tags: [Censored,Solowork,Humiliation,Female Teacher,Abuse,Original Collaboration,Submissive Woman	 ]
-maker: [FunCity / Mousozoku   ]
+maker: [FunCity- Mousozoku  ]
 actress: [Sasahara Yuri  ]
 ---
 

@@ -4,7 +4,7 @@ title: KTKC-166 (Provisional) I Failed In Virtual Currency, So My Daughter Will 
 date: 2023-08-05T00:00:00Z
 image: "ktkc166pl.jpg"
 tags: [Censored,Creampie,Big Tits,Incest	 ]
-maker: [Kichikkusu / Mousou Zoku  ]
+maker: [Kichikkusu- Mousou Zoku  ]
 actress: []
 ---
 

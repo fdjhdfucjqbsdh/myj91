@@ -4,7 +4,7 @@ title: COGM-055 Word By Word, Just Like I Said, Play Training.
 date: 2023-07-30T03:00:00Z
 image: "cogm055pl.jpg"
 tags: [Censored,Beautiful Girl,Big Tits,POV ]
-maker: [Koguma / Mousouzoku]
+maker: [Koguma- Mousouzoku]
 actress: []
 ---
 

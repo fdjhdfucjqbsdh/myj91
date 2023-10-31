@@ -4,7 +4,7 @@ title: KSBJ-267 A Lewd Wife Who Provokes Her Husband's Subordinates! Sae Fujiki
 date: 2023-10-14T00:45:00Z
 image: "ksbj267pl.jpg"
 tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Slut,Drama	]
-maker: [KSB Kikaku / Emmanuelle  ]
+maker: [KSB Kikaku- Emmanuelle  ]
 actress: [Fujiki Sae ]
 ---
 

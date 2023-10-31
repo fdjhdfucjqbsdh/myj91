@@ -4,7 +4,7 @@ title: KTKC-167 A Sober Glasses Girl From Fukui, A Miracle Of A National Treasur
 date: 2023-09-02T00:20:00Z
 image: "ktkc167pl.jpg"
 tags: [Censored,Creampie,Big Tits,Ultra-Huge Tits ]
-maker: [Kichikkusu / Mousou Zoku   ]
+maker: [Kichikkusu- Mousou Zoku  ]
 actress: [Hazuki Noa  ]
 ---
 

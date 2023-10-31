@@ -4,7 +4,7 @@ title: KTKL-126 Innocent Innocent Busty Idol Candidate Chihiro Who Dreamed Of Be
 date: 2023-09-02T00:20:00Z
 image: "ktkl126pl.jpg"
 tags: [Censored,Creampie,Big Tits,Mini,Ultra-Huge Tits	 ]
-maker: [Kichikkusu / Mousou Zoku   ]
+maker: [Kichikkusu- Mousou Zoku  ]
 actress: [Sasahara Urara  ]
 ---
 

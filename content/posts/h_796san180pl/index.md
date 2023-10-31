@@ -13,7 +13,7 @@ actress: [Kikuchi Maya  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XkMyzWKj98uAaK">
+<div class="video" data-videoid="DZjbGjmKGztkewR">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/h_796san180pl.jpg" width="WIDTH" height="HEIGHT" alt="h_796san180pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Kikuchi Maya  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XkMyzWKj98uAaK"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/DZjbGjmKGztkewR"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

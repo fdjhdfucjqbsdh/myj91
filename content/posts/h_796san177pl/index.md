@@ -1,20 +1,21 @@
 ---
 author: j91
-title: FSDSS-680 The Homeroom Teacher Is Seduced Into A Love Hotel And The Female Student Shakes Her Hips Until She Is Satisfied. Chiharu Mitsuha
-url: /v/FSDSS680.html
-date: 2023-10-31T02:57:00Z
-image: "FSDSS680.jpg"
-tags: [Censored,Beautiful Girl,Breasts,Slut,Solowork,Uniform ]
-maker: [FALENO]
-actress: [Mitsuba Chiharu ]
+title: SAN-177 A Married Woman Who For Some Reason Embezzled Company Money And Gave Up Her Life To Her Brute Boss In Place Of Her Husband, Who Lost Her Mind And Body And Became A Retired Person / Yui Hatano
+
+url: /v/h_796san177pl.html
+date: 2023-10-31T02:15:00Z
+image: "h_796san177pl.jpg"
+tags: [Censored,Solowork,Married Woman,Breasts,Affair,Drama,Cuckold	 ]
+maker: [Maza]
+actress: [ Hatano Yui ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="OXo1Z2AlMouZZ4L">
+<div class="video" data-videoid="kLyllv1MyASOGaw">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/FSDSS680.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS680.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/h_796san177pl.jpg" width="WIDTH" height="HEIGHT" alt="h_796san177pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +33,7 @@ actress: [Mitsuba Chiharu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/OXo1Z2AlMouZZ4L"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/kLyllv1MyASOGaw"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +42,7 @@ actress: [Mitsuba Chiharu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/dc0p6j8tpd36"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/vo24qj9xcxpu"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

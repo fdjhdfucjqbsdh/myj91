@@ -1,20 +1,21 @@
 ---
 author: j91
-title: FSDSS-680 The Homeroom Teacher Is Seduced Into A Love Hotel And The Female Student Shakes Her Hips Until She Is Satisfied. Chiharu Mitsuha
-url: /v/FSDSS680.html
-date: 2023-10-31T02:57:00Z
-image: "FSDSS680.jpg"
-tags: [Censored,Beautiful Girl,Breasts,Slut,Solowork,Uniform ]
-maker: [FALENO]
-actress: [Mitsuba Chiharu ]
+title: STARS-939 I Want To Be Licked And Sucked While Being Stared At By A Gravure Idol. Full Body Licking Service And Blissful Fellatio. Ruu Totsuka
+
+url: /v/STARS939.html
+date: 2023-10-31T02:55:00Z
+image: "STARS939.jpg"
+tags: [Censored,Blowjob,Entertainer,Idol,Kiss,Solowork,Subjectivity ]
+maker: [SOD Create]
+actress: [Totsuka Ruu ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="OXo1Z2AlMouZZ4L">
+<div class="video" data-videoid="ZkLvJx88yRHq61k">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/FSDSS680.jpg" width="WIDTH" height="HEIGHT" alt="FSDSS680.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/STARS939.jpg" width="WIDTH" height="HEIGHT" alt="STARS939.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +33,7 @@ actress: [Mitsuba Chiharu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/OXo1Z2AlMouZZ4L"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/ZkLvJx88yRHq61k"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +42,7 @@ actress: [Mitsuba Chiharu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/dc0p6j8tpd36"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/rf448t4vwosa"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

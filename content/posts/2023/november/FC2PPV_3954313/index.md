@@ -32,7 +32,7 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/PGzeqxdzQWS0pMp"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/PGzeqxdzQWS0pMp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +41,7 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filelions.online/f/v08v1bsyno9l"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
+    <a href="https://filelions.online/f/v08v1bsyno9l" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></div>
 <br><br>
       </div>
     </div>

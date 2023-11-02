@@ -42,7 +42,7 @@ actress: [ Tateoka Anna ]
 	      <br>
 <div class="buttons">
     <p><a href="https://wolfstream.tv/mofjzbs9q8fg"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://userscloud.com/h470zvlzux8o"><button class="btn-hover color-8"><i class="fa fa-download"></i> EN.SUB</button></a></p></div>
+<p><a href="https://userscloud.com/h470zvlzux8o"><button class="btn-hover color-8"><i class="fa fa-download"></i> ID.SUB</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: DLDSS-247 Wet, Disheveled, Orgasming… One Night And Two Days Hot Spring Trip Date With Sexual Desire Exposed Maaya Irita
+title: JUFE-527 It Was Amazing When I Took It Off! Kana-chan, A Junior At The Company, Is A Pervert With Big Breasts That Is Obedient To My Cock As She Cries Out Loud. Kana Kusakabe
 
-url: /v/DLDSS247.html
-date: 2023-11-03T03:00:00Z
-image: "DLDSS247.jpg"
-tags: [Censored,Big Tits,Couple,Hot Spring,POV,Solowork ]
-maker: [DAHLIA ]
-actress: [ Maaya Irita]
+url: /v/jufe527pl.html
+date: 2023-11-03T02:30:00Z
+image: "jufe527pl.jpg"
+tags: [Censored,Creampie,Solowork,Big Tits,Titty Fuck,POV	 ]
+maker: [Fitch]
+actress: [Kusakabe Kana  ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="74awQp6xpJhAl9w">
+<div class="video" data-videoid="34m9AMA16JIdB0x">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/DLDSS247.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS247.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/jufe527pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe527pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/74awQp6xpJhAl9w" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/34m9AMA16JIdB0x"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ctbnb3n385j6" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/gu3hv84xys8r"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

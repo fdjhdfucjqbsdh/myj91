@@ -1,21 +1,21 @@
 ---
 author: j91
-title: DLDSS-247 Wet, Disheveled, Orgasming… One Night And Two Days Hot Spring Trip Date With Sexual Desire Exposed Maaya Irita
+title: WAAA-317 Tsundere Full Throttle With Pheromone Dirty Talk! Sweet Breasted Maid's Titty Fuck And Creampie Explosive Love Is Melting Ascension Love Ai Sayama
 
-url: /v/DLDSS247.html
-date: 2023-11-03T03:00:00Z
-image: "DLDSS247.jpg"
-tags: [Censored,Big Tits,Couple,Hot Spring,POV,Solowork ]
-maker: [DAHLIA ]
-actress: [ Maaya Irita]
+url: /v/waaa317pl.html
+date: 2023-11-03T02:50:00Z
+image: "waaa317pl.jpg"
+tags: [Censored, Maid,Creampie,Solowork,Big Tits,Titty Fuck,Slut	]
+maker: [WANZ FACTORY]
+actress: [ Sayama Ai ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="74awQp6xpJhAl9w">
+<div class="video" data-videoid="jgerMdqw1qImzG">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/DLDSS247.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS247.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/waaa317pl.jpg" width="WIDTH" height="HEIGHT" alt="waaa317pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/74awQp6xpJhAl9w" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/jgerMdqw1qImzG"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ctbnb3n385j6" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/zzk5g8a7k3de"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

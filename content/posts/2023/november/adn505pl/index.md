@@ -1,21 +1,21 @@
 ---
 author: j91
-title: DLDSS-247 Wet, Disheveled, Orgasming… One Night And Two Days Hot Spring Trip Date With Sexual Desire Exposed Maaya Irita
+title: ADN-505 I've Been In A Relationship With My Girlfriend's Older Sister For Half A Year. Whenever We Meet, We Always Have Sex With Each Other. Yuna Hasegawa
 
-url: /v/DLDSS247.html
-date: 2023-11-03T03:00:00Z
-image: "DLDSS247.jpg"
-tags: [Censored,Big Tits,Couple,Hot Spring,POV,Solowork ]
-maker: [DAHLIA ]
-actress: [ Maaya Irita]
+url: /v/adn505pl.html
+date: 2023-11-03T02:45:00Z
+image: "adn505pl.jpg"
+tags: [Censored,Creampie,Solowork,Big Tits,Drama,Cuckold	 ]
+maker: [Attackers]
+actress: [Hasegawa Yuuna  ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="74awQp6xpJhAl9w">
+<div class="video" data-videoid="WG2m4DQVoGSb6Rj">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/DLDSS247.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS247.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/adn505pl.jpg" width="WIDTH" height="HEIGHT" alt="adn505pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/74awQp6xpJhAl9w" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/WG2m4DQVoGSb6Rj"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ Maaya Irita]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/ctbnb3n385j6" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+    <a href="https://wolfstream.tv/1r4mq72z1i3d"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
 <br><br>
       </div>
     </div>

@@ -33,7 +33,9 @@ actress: [ Shiromine Miu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/oweJlJlLROCJ6Gm"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/oweJlJlLROCJ6Gm"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamvid.net/thc85lyi8crm"><button class="btn-hover color-2"><i class="fa fa-download"></i> SV</button></a></p>
+<p><a href="https://sfastwish.com/3y7eu7nheg1r"><button class="btn-hover color-1"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +44,9 @@ actress: [ Shiromine Miu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/hpoxsx4hrc8o"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></div>
+<p><a href="https://wolfstream.tv/hpoxsx4hrc8o"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="https://fviplions.com/f/ax4b6uxko1yq"><button class="btn-hover color-8"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://vembed.net/v/eL2157JbbyOrw48"><button class="btn-hover color-7"><i class="fa fa-download"></i> VG</button></a></p></div>
 <br><br>
       </div>
     </div>

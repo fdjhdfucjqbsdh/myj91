@@ -43,7 +43,7 @@ actress: [Amatsuka Moe ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://wolfstream.tv/evrl4pc6blrz" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a>
+<p><a href="https://wolfstream.tv/evrl4pc6blrz" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
 <p><a href="https://lylxan.com/kjl2nhgy2mpk" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> ZH</button></a></p></div>
 <br><br>
       </div>

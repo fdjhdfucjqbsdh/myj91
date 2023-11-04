@@ -34,7 +34,7 @@ actress: [ Shiromine Miu ]
 	      	      <br>
 <div class="buttons">  
 <p><a href="https://streamtape.to/v/oweJlJlLROCJ6Gm"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://streamvid.net/thc85lyi8crm"><button class="btn-hover color-2"><i class="fa fa-download"></i> SV</button></a></p>
+<p><a href="https://lylxan.com/3j6hr1q47yld"><button class="btn-hover color-2"><i class="fa fa-download"></i> ZH</button></a></p>
 <p><a href="https://sfastwish.com/3y7eu7nheg1r"><button class="btn-hover color-1"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

@@ -13,7 +13,7 @@ actress: [Misono Waka  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="YG1bzooeaOSvM0k">
+<div class="video" data-videoid="KQwvmO40RXH06bL">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/moon015pl.jpg" width="WIDTH" height="HEIGHT" alt="moon015pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Misono Waka  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/YG1bzooeaOSvM0k" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/KQwvmO40RXH06bL/MOON-015.mp4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://sfastwish.com/apjv2klky0eg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
@@ -43,8 +43,8 @@ actress: [Misono Waka  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://wolfstream.tv/w5gt4eisl6ah" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://lylxan.com/7zibuko8grva" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> ZH</button></a></p></div>
+<p><a href="https://wolfstream.tv/ucaox3kn4cv9/MOON-015.mp4.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="https://lylxan.com/ljld7sjpj298" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> ZH</button></a></p></div>
 <br><br>
       </div>
     </div>

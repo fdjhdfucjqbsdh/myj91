@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="tape_fileid">
+<div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/huntb603pl.jpg" width="WIDTH" height="HEIGHT" alt="huntb603pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">

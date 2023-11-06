@@ -13,13 +13,13 @@ actress: [Sakura Momo  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="tape_fileid">
+<div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/ipzz134pl.jpg" width="WIDTH" height="HEIGHT" alt="ipzz134pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">

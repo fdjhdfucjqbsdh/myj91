@@ -13,7 +13,7 @@ actress: [Sasaki Hinako ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Xxl8QWdR9AuW2z">
+<div class="video" data-videoid="3DlYv4GBdbfdmP0">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/SUWK002/SUWK002.jpg" width="WIDTH" height="HEIGHT" alt="SUWK002.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Sasaki Hinako ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/Xxl8QWdR9AuW2z" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/3DlYv4GBdbfdmP0" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://sfastwish.com/fi0a96hj7cy6" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

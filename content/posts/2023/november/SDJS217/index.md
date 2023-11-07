@@ -13,7 +13,7 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="qMbpo6PLZPsyM2">
+<div class="video" data-videoid="wG32Vq2Rj3SPDW">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/SDJS217/SDJS217.jpg" width="WIDTH" height="HEIGHT" alt="SDJS217.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/qMbpo6PLZPsyM2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/wG32Vq2Rj3SPDW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://sfastwish.com/4gxwg749fnt6" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

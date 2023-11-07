@@ -14,7 +14,7 @@ actress: [ ]
 
 <div class="video" data-videoid="my9gBm6KM2sbAwq">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/heyzo-3212.jpg" width="WIDTH" height="HEIGHT" alt="heyzo-3212.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/heyzo-3212/heyzo-3212.jpg" width="WIDTH" height="HEIGHT" alt="heyzo-3212.mp4" loading="lazy">
     </a>
 </div>
 

@@ -15,7 +15,7 @@ actress: [ ]
 
 <div class="video" data-videoid="LXkyje1qlaFRLrd">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/jjpp179pl.jpg" width="WIDTH" height="HEIGHT" alt="jjpp179pl.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/jjpp179pl/jjpp179pl.jpg" width="WIDTH" height="HEIGHT" alt="jjpp179pl.mp4" loading="lazy">
     </a>
 </div>
 

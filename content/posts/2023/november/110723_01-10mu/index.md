@@ -14,7 +14,7 @@ actress: [Runa Yamagishi ]
 
 <div class="video" data-videoid="8KX37dzawmT6Xa">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/110723_01-10mu.jpg" width="WIDTH" height="HEIGHT" alt="110723_01-10mu.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/110723_01-10mu/110723_01-10mu.jpg" width="WIDTH" height="HEIGHT" alt="110723_01-10mu.mp4" loading="lazy">
     </a>
 </div>
 

@@ -15,7 +15,7 @@ actress: [Sakura Mana ]
 
 <div class="video" data-videoid="8BAemVlB0Ycom6m">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/STARS959.jpg" width="WIDTH" height="HEIGHT" alt="STARS959.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/STARS959/STARS959.jpg" width="WIDTH" height="HEIGHT" alt="STARS959.mp4" loading="lazy">
     </a>
 </div>
 

@@ -15,7 +15,7 @@ actress: [ Mino Suzume]
 
 <div class="video" data-videoid="kLMVb3lvblcOL7Y">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/DLDSS241.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS241.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/DLDSS241/DLDSS241.jpg" width="WIDTH" height="HEIGHT" alt="DLDSS241.mp4" loading="lazy">
     </a>
 </div>
 

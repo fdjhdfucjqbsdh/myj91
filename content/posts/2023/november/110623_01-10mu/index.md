@@ -14,7 +14,7 @@ actress: [Shiho Shinozuka]
 
 <div class="video" data-videoid="jgBr1JKaXbUzjLL">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/110623_01-10mu.jpg" width="WIDTH" height="HEIGHT" alt="110623_01-10mu.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/110623_01-10mu/110623_01-10mu.jpg" width="WIDTH" height="HEIGHT" alt="110623_01-10mu.mp4" loading="lazy">
     </a>
 </div>
 

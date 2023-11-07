@@ -15,7 +15,7 @@ actress: [Hamabe Shiho ]
 
 <div class="video" data-videoid="9vbrWaMZAJuY2a">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/STARS943.jpg" width="WIDTH" height="HEIGHT" alt="STARS943.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/STARS943/STARS943.jpg" width="WIDTH" height="HEIGHT" alt="STARS943.mp4" loading="lazy">
     </a>
 </div>
 

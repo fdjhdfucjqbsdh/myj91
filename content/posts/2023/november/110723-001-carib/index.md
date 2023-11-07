@@ -14,7 +14,7 @@ actress: [Minami Nakata]
 
 <div class="video" data-videoid="R71AgpdaOVCdrW2">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/110723-001-carib.jpg" width="WIDTH" height="HEIGHT" alt="110723-001-carib.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/110723-001-carib/110723-001-carib.jpg" width="WIDTH" height="HEIGHT" alt="110723-001-carib.mp4" loading="lazy">
     </a>
 </div>
 

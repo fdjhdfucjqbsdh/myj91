@@ -14,7 +14,7 @@ actress: [ Eri Saeki]
 
 <div class="video" data-videoid="Dk3MD7pBq0CkZym">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/110723_001-1pon.jpg" width="WIDTH" height="HEIGHT" alt="110723_001-1pon.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/110723_001-1pon/110723_001-1pon.jpg" width="WIDTH" height="HEIGHT" alt="110723_001-1pon.mp4" loading="lazy">
     </a>
 </div>
 

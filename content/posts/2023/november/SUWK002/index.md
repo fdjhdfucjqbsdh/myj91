@@ -15,7 +15,7 @@ actress: [Sasaki Hinako ]
 
 <div class="video" data-videoid="Xxl8QWdR9AuW2z">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/SUWK002.jpg" width="WIDTH" height="HEIGHT" alt="SUWK002.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/SUWK002/SUWK002.jpg" width="WIDTH" height="HEIGHT" alt="SUWK002.mp4" loading="lazy">
     </a>
 </div>
 

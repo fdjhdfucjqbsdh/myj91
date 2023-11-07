@@ -14,7 +14,7 @@ actress: [ ]
 
 <div class="video" data-videoid="m7kxB9DGDaIbLo8">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/FC2PPV_3982663.jpg" width="WIDTH" height="HEIGHT" alt="FC2PPV_3982663.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/FC2PPV_3982663/FC2PPV_3982663.jpg" width="WIDTH" height="HEIGHT" alt="FC2PPV_3982663.mp4" loading="lazy">
     </a>
 </div>
 

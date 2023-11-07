@@ -15,7 +15,7 @@ actress: [ ]
 
 <div class="video" data-videoid="qMbpo6PLZPsyM2">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/SDJS217.jpg" width="WIDTH" height="HEIGHT" alt="SDJS217.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/SDJS217/SDJS217.jpg" width="WIDTH" height="HEIGHT" alt="SDJS217.mp4" loading="lazy">
     </a>
 </div>
 

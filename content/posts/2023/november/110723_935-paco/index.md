@@ -14,7 +14,7 @@ actress: [ ]
 
 <div class="video" data-videoid="or7K4b67wBHOp9">
     <a href="javascript:;">
-        <img src="https://my.j91.asia/v/110723_935-paco.jpg" width="WIDTH" height="HEIGHT" alt="110723_935-paco.mp4" loading="lazy">
+        <img src="https://my.j91.asia/v/110723_935-paco/110723_935-paco.jpg" width="WIDTH" height="HEIGHT" alt="110723_935-paco.mp4" loading="lazy">
     </a>
 </div>
 

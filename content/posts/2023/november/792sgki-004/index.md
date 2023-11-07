@@ -1,6 +1,6 @@
 ---
 author: j91
-title: SGKI-004 I’m Squid! Mezamashi News: “Never Change Your Expression During On Air” Competitive Station Announcer, Third Year Professionalism
+title: SGKI-004 I’m Squid! Mezamashi News. “Never Change Your Expression During On Air” Competitive Station Announcer, Third Year Professionalism
 
 url: /v/792sgki-004
 date: 2023-11-07T02:15:00Z

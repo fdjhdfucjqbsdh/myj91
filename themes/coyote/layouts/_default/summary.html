@@ -2,7 +2,7 @@
   <a class="article__inner" href="{{ .Permalink }}">
     <div class="article__header">
 {{ $image := .Resources.GetMatch .Params.image }}
-{{ $small := $image.Resize "320x q80 Box" }}
+{{ $small := $image.Resize "350x q80 Box" }}
 <img class="article__image" src="{{ $small.RelPermalink }}">
     </div>
     <div class="article__text">

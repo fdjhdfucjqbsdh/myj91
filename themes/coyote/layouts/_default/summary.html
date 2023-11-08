@@ -3,7 +3,7 @@
     <div class="article__header">
 {{ $image := .Resources.GetMatch .Params.image }}
 {{ $small := $image.Resize "350x q85 Box" }}
-<img class="article__image" src="{{ $small.RelPermalink }}">
+<img class="article__image" src="{{ $small.RelPermalink }}" loading="lazy">
     </div>
     <div class="article__text">
       <div class="truncated" title="{{ .Title }}">

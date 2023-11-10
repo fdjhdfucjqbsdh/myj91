@@ -3,9 +3,9 @@ author: j91
 title: DASS-249 My Private Parts Were Touched So Much By A Dispatched Masseuse That I Couldn't Bear The Pleasure And Ended Up Cuckolding Her. Kana Morisawa
 
 url: /v/dass249pl.html
-date: 1970-12-31T02:35:00Z
+date: 2023-11-10T02:35:00Z
 image: "dass249pl.jpg"
-tags: [Upcoming releases,Solowork,Married Woman,Massage,Lotion,Cuckold	 ]
+tags: [Censored,Solowork,Married Woman,Massage,Lotion,Cuckold	 ]
 maker: [Das !]
 actress: [Iioka Kanako ]
 ---
@@ -13,13 +13,13 @@ actress: [Iioka Kanako ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="vBwwZ7rjyzc43Qk">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/dass249pl.jpg" width="WIDTH" height="HEIGHT" alt="dass249pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Iioka Kanako ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/vBwwZ7rjyzc43Qk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/i13t11gqcpxc" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Iioka Kanako ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

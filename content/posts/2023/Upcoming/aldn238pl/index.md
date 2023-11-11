@@ -3,9 +3,9 @@ author: j91
 title: ALDN-238 This Bitch Is A Lewd Beast Sumire Mihara
 
 url: /v/aldn238pl
-date: 1970-12-30T02:50:00Z
+date: 2023-11-11T02:50:00Z
 image: "aldn238pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Drama	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Drama	 ]
 maker: [ Takara Eizou  ]
 actress: [ Mihara Sumire]
 ---
@@ -13,13 +13,13 @@ actress: [ Mihara Sumire]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="p1ZkPlmpr1trykv">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/aldn238pl/aldn238pl.jpg" width="WIDTH" height="HEIGHT" alt="aldn238pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mihara Sumire]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/p1ZkPlmpr1trykv" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/xi7rfzf6ljar" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mihara Sumire]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

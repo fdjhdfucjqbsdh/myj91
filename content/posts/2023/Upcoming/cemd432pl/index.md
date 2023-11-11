@@ -3,9 +3,9 @@ author: j91
 title: CEMD-432 Humiliation, Rape, Jumpsuit Wearing, Downtown Date! 10 An Komatsu
 
 url: /v/cemd432pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-11T02:30:00Z
 image: "cemd432pl.jpg"
-tags: [Upcoming releases, Solowork,Outdoors,Humiliation,Mature Woman,Toy,Tits	]
+tags: [Censored, Solowork,Outdoors,Humiliation,Mature Woman,Toy,Tits	]
 maker: [Serebu No Tomo   ]
 actress: [Komatsu An  ]
 ---
@@ -13,13 +13,13 @@ actress: [Komatsu An  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="vYOlXBMPLkIJxR">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/cemd432pl/cemd432pl.jpg" width="WIDTH" height="HEIGHT" alt="cemd432pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Komatsu An  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/vYOlXBMPLkIJxR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/dxhn44otvgin" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Komatsu An  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

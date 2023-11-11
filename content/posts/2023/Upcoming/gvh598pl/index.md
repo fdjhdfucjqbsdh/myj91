@@ -3,9 +3,9 @@ author: j91
 title: GVH-598 Konatsu Kashiwagi, A Big-breasted Little Devil Bitch With Plain Glasses Who Plays With The Submissive Guy In Her Class As Her Daily Sex Slave After School.
 
 url: /v/gvh598pl
-date: 1970-12-30T02:55:00Z
+date: 2023-11-11T02:55:00Z
 image: "gvh598pl.jpg"
-tags: [Upcoming releases,Solowork,School Girls,Big Tits,Glasses,Submissive Men,Bitch	 ]
+tags: [Censored,Solowork,School Girls,Big Tits,Glasses,Submissive Men,Bitch	 ]
 maker: [Glory Quest   ]
 actress: [ Kashiwagi Konatsu ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kashiwagi Konatsu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="6q9vvdmrW7Tpdz">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/gvh598pl/gvh598pl.jpg" width="WIDTH" height="HEIGHT" alt="gvh598pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kashiwagi Konatsu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/6q9vvdmrW7Tpdz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/7ule6nnycitf" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kashiwagi Konatsu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

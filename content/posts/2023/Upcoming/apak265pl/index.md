@@ -3,9 +3,9 @@ author: j91
 title: APAK-265 Haruka, A Lewd And Masochistic Tall Model Female Office Worker [Extreme Affair With A Working Married Woman] * Lewd Climax Sex With An Off-campus Girl Confined To A Hotel Haruka Katsuragi (32) Married
 
 url: /v/apak265pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-11T02:30:00Z
 image: "apak265pl.jpg"
-tags: [Upcoming releases,OL,Creampie,Solowork,Nasty, Hardcore,Facials,Acme · Orgasm	 ]
+tags: [Censored,OL,Creampie,Solowork,Nasty, Hardcore,Facials,Acme · Orgasm	 ]
 maker: [Aurora Project Annex   ]
 actress: [ Katsuragi Haruka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Katsuragi Haruka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="lWwaMoppO0s7XGb">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/apak265pl/apak265pl.jpg" width="WIDTH" height="HEIGHT" alt="apak265pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Katsuragi Haruka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/lWwaMoppO0s7XGb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/ehzb93aeha76" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Katsuragi Haruka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

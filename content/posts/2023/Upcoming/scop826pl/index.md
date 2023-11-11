@@ -3,9 +3,9 @@ author: j91
 title: SCOP-826 Repeat Rate 120%! There Is A Rumor That A Pin Salon Shop Specializing In Big Breasts In Tokyo Has A Harem Raw Insertion Service That Is Limited To One Group Per Day, Although It Is Officially Prohibited! ? Thoroughly Check If This Is True! !
 
 url: /v/scop826pl
-date: 1970-12-30T02:35:00Z
+date: 2023-11-11T02:35:00Z
 image: "scop826pl.jpg"
-tags: [Upcoming releases,Creampie,Big Tits,Titty Fuck,Prostitutes	 ]
+tags: [Censored,Creampie,Big Tits,Titty Fuck,Prostitutes	 ]
 maker: [K.M.Produce   ]
 actress: [ Yoshine Yuria ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yoshine Yuria ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="DzYXB6DAelfkeM9">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/scop826pl/scop826pl.jpg" width="WIDTH" height="HEIGHT" alt="scop826pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yoshine Yuria ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DzYXB6DAelfkeM9" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/jjgms6jcm8kx" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yoshine Yuria ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

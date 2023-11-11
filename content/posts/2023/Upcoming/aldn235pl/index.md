@@ -3,9 +3,9 @@ author: j91
 title: ALDN-235 I Can't Stand My Patience, My Daughter-in-law Is My Uncle Ayumi Natsukawa
 
 url: /v/aldn235pl
-date: 1970-12-30T02:50:00Z
+date: 2023-11-11T02:50:00Z
 image: "aldn235pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Married Woman,Incest,Mature Woman	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Incest,Mature Woman	 ]
 maker: [Takara Eizou   ]
 actress: [ Natsukawa Ayumi]
 ---
@@ -13,13 +13,13 @@ actress: [ Natsukawa Ayumi]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="RkWrjg9yQ9HdGVY">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/aldn235pl/aldn235pl.jpg" width="WIDTH" height="HEIGHT" alt="aldn235pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Natsukawa Ayumi]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/RkWrjg9yQ9HdGVY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/fwrmrn75ukw8" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Natsukawa Ayumi]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

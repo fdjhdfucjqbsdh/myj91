@@ -3,9 +3,9 @@ author: j91
 title: CHRV-191 Kuri-chan Kuri-kuri! Kuliniki! My Sister's Huge Breasts Are Worth Seeing! Short-sleeved Sailor Suit Raw Creampie! Cuteness That Surpasses AI Gravure Idols! I Cup 98cm Rinpyon
 
 url: /v/chrv191pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-11T02:30:00Z
 image: "chrv191pl.jpg"
-tags: [Upcoming releases,Sailor Suit,Creampie,Big Tits,Titty Fuck,Sister	 ]
+tags: [Censored,Sailor Suit,Creampie,Big Tits,Titty Fuck,Sister	 ]
 maker: [ Cherries Rebo  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="LXaG63AlXdUy3G">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/chrv191pl/chrv191pl.jpg" width="WIDTH" height="HEIGHT" alt="chrv191pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/LXaG63AlXdUy3G" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/wtc42rgd2qf8" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

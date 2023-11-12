@@ -2,9 +2,9 @@
 author: j91
 title: VEMA-214 Female Boss And Subordinate Have Sex The Moment They Are Alone In The Office Reiko Kobayakawa
 
-url: /v/isi_image
+url: /v/vema214pl
 date: 1970-12-29T02:15:00Z
-image: "isi_image.jpg"
+image: "vema214pl.jpg"
 tags: [Upcoming releases, Creampie,Solowork,Married Woman,Slut,Mature Woman,Cuckold	]
 maker: [Venus]
 actress: [ Kobayakawa Reiko]
@@ -15,7 +15,7 @@ actress: [ Kobayakawa Reiko]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/isi_image/isi_image.jpg" width="WIDTH" height="HEIGHT" alt="isi_image.mp4" loading="lazy">
+        <img src="/v/vema214pl/vema214pl.jpg" width="WIDTH" height="HEIGHT" alt="vema214pl.mp4" loading="lazy">
     </a>
 </div>
 

@@ -3,9 +3,9 @@ author: j91
 title: MIMK-134 The Hypnosis Technique Is Amazing! Original Work, Fatalpulse Asanagi A Live-action Version Of The Mysterious Work That Has Sold A Total Of 40,000 Copies! Master-slave Relationship Begins With Hypnosis!
 
 url: /v/mimk134pl
-date: 1970-12-29T02:56:00Z
+date: 2023-11-17T02:56:00Z
 image: "mimk134pl.jpg"
-tags: [Upcoming releases,Creampie,3P, 4P,Beautiful Girl,Hypnosis,Original Collaboration	 ]
+tags: [Censored,Creampie,3P, 4P,Beautiful Girl,Hypnosis,Original Collaboration	 ]
 maker: [MOODYZ]
 actress: [Satsuki Ena ,Yokomiya Nanami ]
 ---
@@ -13,13 +13,13 @@ actress: [Satsuki Ena ,Yokomiya Nanami ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="0LK3kgjMArH6zG">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/mimk134pl/mimk134pl.jpg" width="WIDTH" height="HEIGHT" alt="mimk134pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Satsuki Ena ,Yokomiya Nanami ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/0LK3kgjMArH6zG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/2o939td5t4d0" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Satsuki Ena ,Yokomiya Nanami ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

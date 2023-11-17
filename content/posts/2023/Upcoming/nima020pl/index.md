@@ -3,9 +3,9 @@ author: j91
 title: NIMA-020 A Live-action Version Of The Whole Story Of A Neat Childhood Friend From The Swimming Club Being Toyed With By A DQN! !
 
 url: /v/nima020pl
-date: 1970-12-29T02:30:00Z
+date: 2023-11-17T02:30:00Z
 image: "nima020pl.jpg"
-tags: [Upcoming releases,School Girls,Big Tits,School Swimsuit,Cuckold,Original Collaboration	 ]
+tags: [Censored,School Girls,Big Tits,School Swimsuit,Cuckold,Original Collaboration	 ]
 maker: [Fitch]
 actress: [Yayoi Mizuki  ]
 ---
@@ -13,13 +13,13 @@ actress: [Yayoi Mizuki  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="xolZ6wevv8IkbRo">
     <a href="javascript:;">
         <img src="/v/nima020pl/nima020pl.jpg" width="WIDTH" height="HEIGHT" alt="nima020pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Yayoi Mizuki  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/xolZ6wevv8IkbRo" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/n75sbafmdveo" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Yayoi Mizuki  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://filelions.online/f/fl_fileid" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

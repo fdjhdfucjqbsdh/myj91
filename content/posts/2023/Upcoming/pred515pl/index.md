@@ -13,13 +13,13 @@ actress: [Yamagishi Aika ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="3fwl3btf0i1i">
+<div class="video" data-videoid="xXQggLBprDIkO7b">
     <a href="javascript:;">
         <img src="https://my.j91.asia/v/pred515pl/pred515pl.jpg" width="WIDTH" height="HEIGHT" alt="pred515pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-ws.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Yamagishi Aika ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://wolfstream.tv/3fwl3btf0i1i" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://sfastwish.com/q1n02t58wjfw" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/xXQggLBprDIkO7b" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/05tquz0zw2jn" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Yamagishi Aika ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/u3k5h2l6jkwo" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://wolfstream.tv/79qj2v0mhv9z" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

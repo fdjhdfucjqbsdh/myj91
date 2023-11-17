@@ -13,7 +13,7 @@ actress: [Fujii Ranran]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="KWgRZKOd83s06Qj">
+<div class="video" data-videoid="JJqkymrKArh9ew">
     <a href="javascript:;">
         <img src="/v/fsdss695/fsdss695.jpg" width="WIDTH" height="HEIGHT" alt="fsdss695.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Fujii Ranran]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/KWgRZKOd83s06Qj" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/JJqkymrKArh9ew" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://sfastwish.com/9fzjhr1j5typ" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

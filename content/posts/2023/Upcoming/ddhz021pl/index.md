@@ -3,9 +3,9 @@ author: j91
 title: DDHZ-021 Lewd Milk Mom - Mother-in-law's Breast Milk On Yui Kawagoe
 
 url: /v/ddhz021pl
-date: 1970-12-28T02:45:00Z
+date: 2023-11-18T02:45:00Z
 image: "ddhz021pl.jpg"
-tags: [Upcoming releases, Solowork,Married Woman,Breast Milk,Incest,Mature Woman,Stepmother	]
+tags: [Censored, Solowork,Married Woman,Breast Milk,Incest,Mature Woman,Stepmother	]
 maker: [ Dogma  ]
 actress: [ Kawagoe Yui]
 ---
@@ -13,13 +13,13 @@ actress: [ Kawagoe Yui]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="J2dq9QG24rFj3Zx">
     <a href="javascript:;">
         <img src="/v/ddhz021pl/ddhz021pl.jpg" width="WIDTH" height="HEIGHT" alt="ddhz021pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kawagoe Yui]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/J2dq9QG24rFj3Zx" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/bqh6vejqq0de" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kawagoe Yui]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://filelions.online/f/fl_fileid" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

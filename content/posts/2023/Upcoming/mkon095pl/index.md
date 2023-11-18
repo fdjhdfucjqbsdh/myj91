@@ -3,9 +3,9 @@ author: j91
 title: MKON-095 I Was At The Peak Of Happiness After Having My First Girlfriend, But Then The DQN Who Used To Bully Me Moved In Next Door, Moeka Marui.
 
 url: /v/mkon095pl
-date: 1970-12-28T02:52:00Z
+date: 2023-11-18T02:52:00Z
 image: "mkon095pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,School Girls,Beautiful Girl,Cuckold ]
+tags: [Censored,Creampie,Solowork,School Girls,Beautiful Girl,Cuckold ]
 maker: [Kaguya Hime Pt - Mousozoku   ]
 actress: [Marui Moeka  ]
 ---
@@ -13,13 +13,13 @@ actress: [Marui Moeka  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="JoykgkvMJ7hjMRz">
     <a href="javascript:;">
         <img src="/v/mkon095pl/mkon095pl.jpg" width="WIDTH" height="HEIGHT" alt="mkon095pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Marui Moeka  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/JoykgkvMJ7hjMRz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/ea1y3hc6mo6a" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Marui Moeka  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://filelions.online/f/fl_fileid" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

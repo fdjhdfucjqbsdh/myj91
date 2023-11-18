@@ -3,9 +3,9 @@ author: j91
 title: SORA-495 The FIRST FAKE - Possession Transfer - A Story About A J-type Girl Who Was Treated As A Servant And Completely Reincarnated In Her Arms, Legs, Body, And Mind Over The Course Of A Week Chiharu Miyazawa
 
 url: /v/sora495pl
-date: 1970-12-28T02:50:00Z
+date: 2023-11-18T02:50:00Z
 image: "sora495pl.jpg"
-tags: [Upcoming releases,Solowork,School Girls,Gal,Drama,Fantasy,Sex Conversion - Feminized	 ]
+tags: [Censored,Solowork,School Girls,Gal,Drama,Fantasy,Sex Conversion - Feminized	 ]
 maker: [Yama To Sora   ]
 actress: [Miyazawa Chiharu ]
 ---
@@ -13,13 +13,13 @@ actress: [Miyazawa Chiharu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="KZo6kMr2jqUDGG">
     <a href="javascript:;">
         <img src="/v/sora495pl/sora495pl.jpg" width="WIDTH" height="HEIGHT" alt="sora495pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Miyazawa Chiharu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/KZo6kMr2jqUDGG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/sepv57593le9" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Miyazawa Chiharu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://filelions.online/f/fl_fileid" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: PAP-237 Her Beauty And Style Make You Hard To Believe That She Is A Mature Woman! I Like Japanese People! A Beautiful Mature Woman From Eastern Europe! Until Sex...4 Hours 12 People
+title: GTJ-128 Impalement Torture Criminal Micro Girl Kana Yura
 
-url: /v/pap237pl
-date: 2023-11-18T02:30:00Z
-image: "pap237pl.jpg"
-tags: [Censored, Big Tits,Nasty, Hardcore,4HR+,Oversea Import,Acme · Orgasm]
-maker: [ Ruby  ]
-actress: [ ]
+url: /v/gtj128pl
+date: 2023-11-18T02:45:00Z
+image: "gtj128pl.jpg"
+tags: [Censored,SM,Creampie,Solowork,Torture,Shibari,Deep Throating	 ]
+maker: [ Dogma  ]
+actress: [Yura Kana ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XkwrgbW0yvSDOrA">
+<div class="video" data-videoid="LpwOGWmL6lSRGeX">
     <a href="javascript:;">
-        <img src="/v/pap237pl/pap237pl.jpg" width="WIDTH" height="HEIGHT" alt="pap237pl.mp4" loading="lazy">
+        <img src="/v/gtj128pl/gtj128pl.jpg" width="WIDTH" height="HEIGHT" alt="gtj128pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/XkwrgbW0yvSDOrA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://sfastwish.com/fgcw73d30p14" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/LpwOGWmL6lSRGeX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/wk2pbaydn3ec" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

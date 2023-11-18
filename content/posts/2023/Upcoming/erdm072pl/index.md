@@ -1,21 +1,21 @@
 ---
 author: j91
-title: PAP-237 Her Beauty And Style Make You Hard To Believe That She Is A Mature Woman! I Like Japanese People! A Beautiful Mature Woman From Eastern Europe! Until Sex...4 Hours 12 People
+title: ERDM-072 4 Hours When I Showed My Erect Dick To A Beautiful Mature Hotel Employee And She Pulled Me Out On The Spot
 
-url: /v/pap237pl
-date: 2023-11-18T02:30:00Z
-image: "pap237pl.jpg"
-tags: [Censored, Big Tits,Nasty, Hardcore,4HR+,Oversea Import,Acme · Orgasm]
-maker: [ Ruby  ]
+url: /v/erdm072pl
+date: 2023-11-18T02:00:00Z
+image: "erdm072pl.jpg"
+tags: [Censored, Married Woman,Planning,Various Professions,4HR+,Mature Woman]
+maker: [Ero Daruma - Emaniel   ]
 actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XkwrgbW0yvSDOrA">
+<div class="video" data-videoid="29MYLV69aRUxDJ">
     <a href="javascript:;">
-        <img src="/v/pap237pl/pap237pl.jpg" width="WIDTH" height="HEIGHT" alt="pap237pl.mp4" loading="lazy">
+        <img src="/v/erdm072pl/erdm072pl.jpg" width="WIDTH" height="HEIGHT" alt="erdm072pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/XkwrgbW0yvSDOrA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://sfastwish.com/fgcw73d30p14" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/29MYLV69aRUxDJ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/nbabni8ez4jx" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

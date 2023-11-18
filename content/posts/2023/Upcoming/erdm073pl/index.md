@@ -1,21 +1,21 @@
 ---
 author: j91
-title: PAP-237 Her Beauty And Style Make You Hard To Believe That She Is A Mature Woman! I Like Japanese People! A Beautiful Mature Woman From Eastern Europe! Until Sex...4 Hours 12 People
+title: ERDM-073 My Life Has Been Ruined Because Of My Husband...I Want To Fuck Him So Badly! 4 Hours Of Masochistic Training For A Super Masochistic Wife
 
-url: /v/pap237pl
-date: 2023-11-18T02:30:00Z
-image: "pap237pl.jpg"
-tags: [Censored, Big Tits,Nasty, Hardcore,4HR+,Oversea Import,Acme · Orgasm]
-maker: [ Ruby  ]
+url: /v/erdm073pl
+date: 2023-11-18T02:00:00Z
+image: "erdm073pl.jpg"
+tags: [Censored, Humiliation,Married Woman,Abuse,4HR+]
+maker: [Ero Daruma - Emaniel   ]
 actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XkwrgbW0yvSDOrA">
+<div class="video" data-videoid="P71PDkpa2OuWlw">
     <a href="javascript:;">
-        <img src="/v/pap237pl/pap237pl.jpg" width="WIDTH" height="HEIGHT" alt="pap237pl.mp4" loading="lazy">
+        <img src="/v/erdm073pl/erdm073pl.jpg" width="WIDTH" height="HEIGHT" alt="erdm073pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/XkwrgbW0yvSDOrA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://sfastwish.com/fgcw73d30p14" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/P71PDkpa2OuWlw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://sfastwish.com/fkceu7fi4i6e" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

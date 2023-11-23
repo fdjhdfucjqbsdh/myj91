@@ -3,9 +3,9 @@ author: j91
 title: DANDY-886 When I Showed Off My Erection From The Front To The J○ Sitting In Front Of Me On A Crowded Train, He Was Shy But Curious! She Held My Dick Even Though There Were Other Customers VOL.1
 
 url: /v/dandy886jp
-date: 1970-12-29T00:05:00Z
+date: 2023-11-23T00:05:00Z
 image: "dandy886jp.jpg"
-tags: [Upcoming releases,Humiliation	 ]
+tags: [Censored,Humiliation	 ]
 maker: [Dandy   ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_3.html">
+<div class="video" data-videoid="Gb8Vrd2KVxT1jdR">
     <a href="javascript:;">
         <img src="/v/dandy886jp/dandy886jp.jpg" width="WIDTH" height="HEIGHT" alt="dandy886jp.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Gb8Vrd2KVxT1jdR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jcgzbtpb0b0f" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/8fls2rv80h4z" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/nmjv6rrnmza3" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

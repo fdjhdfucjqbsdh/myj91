@@ -3,9 +3,9 @@ author: j91
 title: WO-014 Dogenzaka Wild One Clinic Ranka
 
 url: /v/wo014pl
-date: 1970-12-29T00:05:00Z
+date: 2023-11-23T00:05:00Z
 image: "wo014pl.jpg"
-tags: [Upcoming releases,Blow,Solowork,Masturbation,Gal,Nurse,Huge Butt,Sun tan	 ]
+tags: [Censored,Blow,Solowork,Masturbation,Gal,Nurse,Huge Butt,Sun tan	 ]
 maker: [WildOne   ]
 actress: [ Ranka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ranka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_3.html">
+<div class="video" data-videoid="e03eJJ0J2vCY32Q">
     <a href="javascript:;">
         <img src="/v/wo014pl/wo014pl.jpg" width="WIDTH" height="HEIGHT" alt="wo014pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ranka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/e03eJJ0J2vCY32Q" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/cco7ixommng6" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ranka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/gqmfw5h59a2h" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/yjznhztmp789" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

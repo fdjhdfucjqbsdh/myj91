@@ -3,9 +3,9 @@ author: j91
 title: DANDY-889 "Could You Please Show Me The Image You Secretly Took?" The Lady CA Pretends To Be Mistaken And Shows The Dick Image And Blushes. She Doesn't Mind Having Her Erect Dick Shown Off Right In Front Of Her.
 
 url: /v/dandy889jp
-date: 1970-12-29T00:05:00Z
+date: 2023-11-23T00:05:00Z
 image: "dandy889jp.jpg"
-tags: [Upcoming releases, Blow,Facials,Slender,Stewardess,Mature Woman	]
+tags: [Censored, Blow,Facials,Slender,Stewardess,Mature Woman	]
 maker: [ Dandy  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_3.html">
+<div class="video" data-videoid="vD6Q2KP227H4071">
     <a href="javascript:;">
         <img src="/v/dandy889jp/dandy889jp.jpg" width="WIDTH" height="HEIGHT" alt="dandy889jp.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/vD6Q2KP227H4071" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/3i4u814j9k0n" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/3yce4xpglefg" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/amto8cgp8c2l" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

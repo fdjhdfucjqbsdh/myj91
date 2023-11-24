@@ -3,9 +3,9 @@ author: j91
 title: HMN-493 Hey, Is It Okay If I Go To Your House Today For Creampie Sex? Shuri Mitani Goes To The House Of A Masochist Man And Delivers Creampie Sex! Ejaculate Until My Balls Are Completely Dry.
 
 url: /v/hmn493pl
-date: 1970-12-31T02:45:00Z
+date: 2023-11-24T02:45:00Z
 image: "hmn493pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Older Sister,Cowgirl,Slut,Submissive Men	 ]
+tags: [Censored,Creampie,Solowork,Older Sister,Cowgirl,Slut,Submissive Men	 ]
 maker: [Honnaka]
 actress: [Mitani Akari  ]
 ---
@@ -13,13 +13,13 @@ actress: [Mitani Akari  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="X2GXgYg0kmfDjbV">
     <a href="javascript:;">
         <img src="/v/hmn493pl/hmn493pl.jpg" width="WIDTH" height="HEIGHT" alt="hmn493pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Mitani Akari  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/X2GXgYg0kmfDjbV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/571v5xinupbi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Mitani Akari  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

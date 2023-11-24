@@ -3,9 +3,9 @@ author: j91
 title: DASS-268 My Wife Will Be Home Soon. Kana Kusakabe
 
 url: /v/dass268pl
-date: 1970-12-31T02:40:00Z
+date: 2023-11-24T02:40:00Z
 image: "dass268pl.jpg"
-tags: [Upcoming releases, Solowork,Big Tits,Married Woman,Affair,Drama	]
+tags: [Censored, Solowork,Big Tits,Married Woman,Affair,Drama	]
 maker: [Das !]
 actress: [ Kusakabe Kana]
 ---
@@ -13,13 +13,13 @@ actress: [ Kusakabe Kana]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="7kYQkYP7xmcA6Xo">
     <a href="javascript:;">
         <img src="/v/dass268pl/dass268pl.jpg" width="WIDTH" height="HEIGHT" alt="dass268pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kusakabe Kana]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7kYQkYP7xmcA6Xo" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lrwzbcxm4wfh" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kusakabe Kana]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

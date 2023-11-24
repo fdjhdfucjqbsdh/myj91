@@ -3,9 +3,9 @@ author: j91
 title: HMN-505 It Was Discovered That My Girlfriend Had A Sex Friend, And When She Was Already Cumming, I Thrusted Her Up Endlessly, Squirted A Lot With A Creampie Piston, And Had Sex With Her, Leaking Backflow Semen! ! Hibino Uta
 
 url: /v/hmn505pl
-date: 1970-12-31T02:45:00Z
+date: 2023-11-24T02:45:00Z
 image: "hmn505pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Beautiful Girl,Cowgirl,Squirting,Slender	 ]
+tags: [Censored,Creampie,Solowork,Beautiful Girl,Cowgirl,Squirting,Slender	 ]
 maker: [Honnaka]
 actress: [Hibino Uta ]
 ---
@@ -13,13 +13,13 @@ actress: [Hibino Uta ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="6WlMeLJllgC9Y9w">
     <a href="javascript:;">
         <img src="/v/hmn505pl/hmn505pl.jpg" width="WIDTH" height="HEIGHT" alt="hmn505pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Hibino Uta ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/6WlMeLJllgC9Y9w" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/96m8g4smrhzb" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Hibino Uta ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

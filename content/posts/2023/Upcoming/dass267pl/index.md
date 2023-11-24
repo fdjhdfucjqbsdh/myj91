@@ -3,9 +3,9 @@ author: j91
 title: DASS-267 A Married Woman In The Opposite Room At The Beauty Salon, Her Creepy Neighbor's Endless Seeding And Dirty Dick Training Makes Her Body Ache... Maina Yuri
 
 url: /v/dass267pl
-date: 1970-12-31T02:40:00Z
+date: 2023-11-24T02:40:00Z
 image: "dass267pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Beauty Shop,Married Woman,Slender,Lotion	 ]
+tags: [Censored,Creampie,Solowork,Beauty Shop,Married Woman,Slender,Lotion	 ]
 maker: [Das !]
 actress: [Yuuri Maina  ]
 ---
@@ -13,13 +13,13 @@ actress: [Yuuri Maina  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="WQkBW6Dl8mSb7R3">
     <a href="javascript:;">
         <img src="/v/dass267pl/dass267pl.jpg" width="WIDTH" height="HEIGHT" alt="dass267pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Yuuri Maina  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/WQkBW6Dl8mSb7R3" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/2laerbjtclaz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Yuuri Maina  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

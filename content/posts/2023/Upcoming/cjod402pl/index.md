@@ -3,9 +3,9 @@ author: j91
 title: CJOD-402 "Hey, If You Cum Outside, Would You Like To Go To A Love Hotel Without Telling Your Girlfriend?" While My Girlfriend Was Away, JULIA, Who Wanted To Have A Sex Friend, Asked Me Out On A Date, And Even Though We Were Outside, She Held Her J-cup Huge Breasts Close To Me... And We Kissed Repeatedly And Seduced Her. I Lost And Got An Erection, So I Ejaculated Many Times Until Morning At The Hotel And Was Taken Down...
 
 url: /v/cjod402pl
-date: 1970-12-31T02:35:00Z
+date: 2023-11-24T02:35:00Z
 image: "cjod402pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Titty Fuck,Slut,Date	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Titty Fuck,Slut,Date	 ]
 maker: [Bi]
 actress: [ Julia]
 ---
@@ -13,13 +13,13 @@ actress: [ Julia]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="drlxyBXk19fkxyP">
     <a href="javascript:;">
         <img src="/v/cjod402pl/cjod402pl.jpg" width="WIDTH" height="HEIGHT" alt="cjod402pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Julia]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/drlxyBXk19fkxyP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/yl584hnptmyo" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Julia]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -44,7 +44,7 @@ actress: [Hatano Yui, Ootsuki Hibiki, Hamasaki Mao, Hasumi Kurea,Oshikawa Yuuri,
 	      <br>
 <div class="buttons">
 <p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filemoon.sx/d/cppsbq6b96gg" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

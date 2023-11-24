@@ -3,9 +3,9 @@ author: j91
 title: JUQ-462 Want To Hang Out With Such A Good Girl. Fumino Satsuki 28 Years Old AV DEBUT A Married Woman Who Unconsciously Makes Men Dependent On Her And Is Dangerous If Touched.
 
 url: /v/juq462pl
-date: 1970-12-31T02:54:00Z
+date: 2023-11-24T02:54:00Z
 image: "juq462pl.jpg"
-tags: [Upcoming releases,Solowork,Married Woman,Debut Production,Breasts,Affair,Mature Woman	 ]
+tags: [Censored,Solowork,Married Woman,Debut Production,Breasts,Affair,Mature Woman	 ]
 maker: [Madonna]
 actress: [ Satsuki Fumino ]
 ---
@@ -13,13 +13,13 @@ actress: [ Satsuki Fumino ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="Yy1ZRmjeY7Cv8jb">
     <a href="javascript:;">
         <img src="/v/juq462pl/juq462pl.jpg" width="WIDTH" height="HEIGHT" alt="juq462pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Satsuki Fumino ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Yy1ZRmjeY7Cv8jb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/4t7pi7454t5g" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Satsuki Fumino ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: JUQ-445 Double Plump Squeezing I Came Back To My Parents' House In The Countryside, And I Was Constantly Being Squeezed By The Local Wives Who Had Too Much Free Time...
 
 url: /v/juq445pl
-date: 1970-12-31T02:50:00Z
+date: 2023-11-24T02:50:00Z
 image: "juq445pl.jpg"
-tags: [Upcoming releases,Creampie,Married Woman,Slut,Mature Woman,BBW	 ]
+tags: [Censored,Creampie,Married Woman,Slut,Mature Woman,BBW	 ]
 maker: [Madonna]
 actress: [Fujisawa Rio, Akai Miki  ]
 ---
@@ -13,13 +13,13 @@ actress: [Fujisawa Rio, Akai Miki  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="QaDx4BDx3AH032Z">
     <a href="javascript:;">
         <img src="/v/juq445pl/juq445pl.jpg" width="WIDTH" height="HEIGHT" alt="juq445pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Fujisawa Rio, Akai Miki  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/QaDx4BDx3AH032Z" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/o62r8cixqi6h" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Fujisawa Rio, Akai Miki  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

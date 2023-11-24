@@ -3,9 +3,9 @@ author: j91
 title: JUQ-443 I Can't Even Tell My Wife That I Impregnated My Mother-in-law... -I Was On A Hot Spring Trip For 1 Night And 2 Days, And I Lost Myself And Cum Inside Me. - Nami Okimiya
 
 url: /v/juq443pl
-date: 1970-12-31T02:50:00Z
+date: 2023-11-24T02:50:00Z
 image: "juq443pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Stepmother,Hot Spring	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Stepmother,Hot Spring	 ]
 maker: [Madonna]
 actress: [ Okimiya Nami ]
 ---
@@ -13,13 +13,13 @@ actress: [ Okimiya Nami ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="DqWZQwQObyHkl9m">
     <a href="javascript:;">
         <img src="/v/juq443pl/juq443pl.jpg" width="WIDTH" height="HEIGHT" alt="juq443pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Okimiya Nami ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DqWZQwQObyHkl9m" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/a4tix7q8rz4u" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Okimiya Nami ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: HUNTB-715 I Moved To Tokyo And Live Alone In An Apartment 1 Minute Walk From The University! I'm Weak And Harmless, So One Big-breasted Girl In My Class Said To Me, ``You're Early Tomorrow, So Let's Stay Over!'' ”He Is Coming!
 
 url: /v/huntb715pl
-date: 1970-12-31T02:09:00Z
+date: 2023-11-24T02:09:00Z
 image: "huntb715pl.jpg"
-tags: [Upcoming releases,Blow,Handjob,Creampie,Nasty, Hardcore	 ]
+tags: [Censored,Blow,Handjob,Creampie,Nasty, Hardcore	 ]
 maker: [Hunter]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="9yqrr2VO0pCaxZW">
     <a href="javascript:;">
         <img src="/v/huntb715pl/huntb715pl.jpg" width="WIDTH" height="HEIGHT" alt="huntb715pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/9yqrr2VO0pCaxZW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/bzdbwl89vba3" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

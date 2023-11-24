@@ -3,9 +3,9 @@ author: j91
 title: JYMA-044 A Middle-aged Man's Sexual Desire Documentary. Sweaty Intercourse Between A Plump Bodied Wife And An Old Man. Shiori Tsukada, A Busty Butt Wife Who Can Be Fucked All Day Long.
 
 url: /v/jyma044pl
-date: 1970-12-31T02:17:00Z
+date: 2023-11-24T02:17:00Z
 image: "jyma044pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Humiliation,Big Tits,Married Woman,BBW,Huge Butt	 ]
+tags: [Censored,Creampie,Solowork,Humiliation,Big Tits,Married Woman,BBW,Huge Butt	 ]
 maker: [Tsukuzuku Onna Wa Tsurai Yo]
 actress: [ Tsukada Shiori ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tsukada Shiori ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="XAjavxGeBycDVry">
     <a href="javascript:;">
         <img src="/v/jyma044pl/jyma044pl.jpg" width="WIDTH" height="HEIGHT" alt="jyma044pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tsukada Shiori ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/XAjavxGeBycDVry" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/0granigu8tvj" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tsukada Shiori ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

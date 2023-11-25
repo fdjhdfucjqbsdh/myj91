@@ -3,9 +3,9 @@ author: j91
 title: BDA-184 Sexual Harassment Guidance For A Spoiled Female Employee Natsuki, 23, A New Female Employee Who Just Joined The Company And Is Forced To Do Erotic Acts As Much As She Wants
 
 url: /v/bda184pl
-date: 1970-12-30T02:40:00Z
+date: 2023-11-25T02:40:00Z
 image: "bda184pl.jpg"
-tags: [Upcoming releases,Other Fetish,Underwear,Tickling,Subordinates - Colleagues,Rolling Back Eyes - Fainting	 ]
+tags: [Censored,Other Fetish,Underwear,Tickling,Subordinates - Colleagues,Rolling Back Eyes - Fainting	 ]
 maker: [ Bermuda - Mousouzoku  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="yV71w1J1k0u1qLl">
     <a href="javascript:;">
         <img src="/v/bda184pl/bda184pl.jpg" width="WIDTH" height="HEIGHT" alt="bda184pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/yV71w1J1k0u1qLl" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/l6rcmln6y4o9" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

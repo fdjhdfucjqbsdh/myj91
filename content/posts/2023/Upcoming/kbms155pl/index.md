@@ -3,9 +3,9 @@ author: j91
 title: KBMS-155 Flower Strip Dance Show
 
 url: /v/kbms155pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-25T02:30:00Z
 image: "kbms155pl.jpg"
-tags: [Upcoming releases,Other Fetish,Dance	 ]
+tags: [Censored,Other Fetish,Dance	 ]
 maker: [ 1113 Koubou - Mousouzoku  ]
 actress: [Iwasawa Kayo, Misaki Sakura, Takanashi Arisa ,Kisaragi Yuno ,Sengoku Monaka  ]
 ---
@@ -13,13 +13,13 @@ actress: [Iwasawa Kayo, Misaki Sakura, Takanashi Arisa ,Kisaragi Yuno ,Sengoku M
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="Q0DJQ73yaQI04XB">
     <a href="javascript:;">
         <img src="/v/kbms155pl/kbms155pl.jpg" width="WIDTH" height="HEIGHT" alt="kbms155pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Iwasawa Kayo, Misaki Sakura, Takanashi Arisa ,Kisaragi Yuno ,Sengoku M
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Q0DJQ73yaQI04XB" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/7u7hdr2p8bp7" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Iwasawa Kayo, Misaki Sakura, Takanashi Arisa ,Kisaragi Yuno ,Sengoku M
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

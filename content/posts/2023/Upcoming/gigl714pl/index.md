@@ -3,9 +3,9 @@ author: j91
 title: GIGL-714 It's True That The More Housewives Drink Alone, The More Stress They Have On Their Husbands! ? Izakaya Pick-up And Take Home SEX Secret Camera 3
 
 url: /v/gigl714pl
-date: 1970-12-30T02:00:00Z
+date: 2023-11-25T02:00:00Z
 image: "gigl714pl.jpg"
-tags: [Upcoming releases,Blow,Creampie,Voyeur,Married Woman,4HR+,Drinking Party	 ]
+tags: [Censored,Blow,Creampie,Voyeur,Married Woman,4HR+,Drinking Party	 ]
 maker: [ GIGOLO (Jigoro)  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="QyLxYbZmqzT0Y4y">
     <a href="javascript:;">
         <img src="/v/gigl714pl/gigl714pl.jpg" width="WIDTH" height="HEIGHT" alt="gigl714pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/QyLxYbZmqzT0Y4y" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/xdx58gpkx8x8" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

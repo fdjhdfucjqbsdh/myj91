@@ -3,9 +3,9 @@ author: j91
 title: NASH-980 Mother-in-law's Mother-in-law Is Better Than My Wife...! ! Domestic Affair Drowning In Taboo Immoral Copulation 4 People 4 Hours
 
 url: /v/nash980pl
-date: 1970-12-30T02:00:00Z
+date: 2023-11-25T02:00:00Z
 image: "nash980pl.jpg"
-tags: [Upcoming releases,Best, Omnibus,Affair,4HR+,Incest,Mature Woman	 ]
+tags: [Censored,Best, Omnibus,Affair,4HR+,Incest,Mature Woman	 ]
 maker: [Nadeshiko   ]
 actress: [Yamaguchi Syuri ,Isawa Ryouko,Narumiya Iroha,Okae Rin  ]
 ---
@@ -13,13 +13,13 @@ actress: [Yamaguchi Syuri ,Isawa Ryouko,Narumiya Iroha,Okae Rin  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="9vBoyD68wYFBvP">
     <a href="javascript:;">
         <img src="/v/nash980pl/nash980pl.jpg" width="WIDTH" height="HEIGHT" alt="nash980pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Yamaguchi Syuri ,Isawa Ryouko,Narumiya Iroha,Okae Rin  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/9vBoyD68wYFBvP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/a4uur858zr7k" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Yamaguchi Syuri ,Isawa Ryouko,Narumiya Iroha,Okae Rin  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

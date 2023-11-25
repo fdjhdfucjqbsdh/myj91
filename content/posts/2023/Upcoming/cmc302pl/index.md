@@ -3,9 +3,9 @@ author: j91
 title: CMC-302 My Son's Wife Is My Secret Sexual Lover 2 Shizune Rikka
 
 url: /v/cmc302pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-25T02:30:00Z
 image: "cmc302pl.jpg"
-tags: [Upcoming releases,SM,Solowork,Enema,Shibari,Nurse	 ]
+tags: [Censored,SM,Solowork,Enema,Shibari,Nurse	 ]
 maker: [ CineMagic  ]
 actress: [ Tachibana Shizune ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tachibana Shizune ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="rolplqZ1bXub02y">
     <a href="javascript:;">
         <img src="/v/cmc302pl/cmc302pl.jpg" width="WIDTH" height="HEIGHT" alt="cmc302pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tachibana Shizune ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/rolplqZ1bXub02y" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/0t8ao54hzc3x" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tachibana Shizune ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

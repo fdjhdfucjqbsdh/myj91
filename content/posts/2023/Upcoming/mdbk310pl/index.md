@@ -3,9 +3,9 @@ author: j91
 title: MDBK-310 My Drunken Female Boss, Who Missed The Last Train And Came To Stay In My Room, Was Full Of Surprises And Had An Unexpectedly Cute Side...My Rationality Was Blown Away...
 
 url: /v/mdbk310pl
-date: 1970-12-30T02:54:00Z
+date: 2023-11-25T02:54:00Z
 image: "mdbk310pl.jpg"
-tags: [Upcoming releases,Creampie,Underwear,Older Sister,Female Boss,No Bra	 ]
+tags: [Censored,Creampie,Underwear,Older Sister,Female Boss,No Bra	 ]
 maker: [ K.M.Produce  ]
 actress: [Honma Yuri , Niimura Akari ,Togawa Nami  ]
 ---
@@ -13,13 +13,13 @@ actress: [Honma Yuri , Niimura Akari ,Togawa Nami  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="K48D4OXgxpi0xOO">
     <a href="javascript:;">
         <img src="/v/mdbk310pl/mdbk310pl.jpg" width="WIDTH" height="HEIGHT" alt="mdbk310pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Honma Yuri , Niimura Akari ,Togawa Nami  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/K48D4OXgxpi0xOO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/n54mzldquqnw" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Honma Yuri , Niimura Akari ,Togawa Nami  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MOOR-005 The Female Announcer Trainees Visited A Rumored Massage Parlor To Practice For An Interview...not A Sex Shop For Women! Rio Nazuki Is Made To Climax With A Huge Cock And A Huge Piston Creampie
 
 url: /v/moor005pl
-date: 1970-12-30T02:30:00Z
+date: 2023-11-25T02:30:00Z
 image: "moor005pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Massage,Slender,Anchor,woman,Acme · Orgasm	 ]
+tags: [Censored,Creampie,Solowork,Massage,Slender,Anchor,woman,Acme · Orgasm	 ]
 maker: [Mushroom - Mousozoku   ]
 actress: [ Natsukuri Rio ]
 ---
@@ -13,13 +13,13 @@ actress: [ Natsukuri Rio ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="dkpxOzqWe4FkykG">
     <a href="javascript:;">
         <img src="/v/moor005pl/moor005pl.jpg" width="WIDTH" height="HEIGHT" alt="moor005pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Natsukuri Rio ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/dkpxOzqWe4FkykG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/tnt0tqy0ea25" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Natsukuri Rio ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

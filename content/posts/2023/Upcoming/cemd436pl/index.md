@@ -3,9 +3,9 @@ author: j91
 title: CEMD-436 "An Komatsu" Vs. Male Girl "Alice Saotome" ~ Two Pleasure-oriented People Use Their Pussies, Anuses, And Dicks To Have Too Much Sex
 
 url: /v/cemd436pl
-date: 1970-12-30T02:45:00Z
+date: 2023-11-25T02:45:00Z
 image: "cemd436pl.jpg"
-tags: [Upcoming releases,Lesbian,Nasty, Hardcore,Mature Woman,Lesbian Kiss,Cross Dressing	 ]
+tags: [Censored,Lesbian,Nasty, Hardcore,Mature Woman,Lesbian Kiss,Cross Dressing	 ]
 maker: [Serebu No Tomo   ]
 actress: [ Komatsu An, Saotome Arisu]
 ---
@@ -13,13 +13,13 @@ actress: [ Komatsu An, Saotome Arisu]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="4okO2GZLBVfKKMQ">
     <a href="javascript:;">
         <img src="/v/cemd436pl/cemd436pl.jpg" width="WIDTH" height="HEIGHT" alt="cemd436pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Komatsu An, Saotome Arisu]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/4okO2GZLBVfKKMQ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/uuu33e5mv53t" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Komatsu An, Saotome Arisu]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

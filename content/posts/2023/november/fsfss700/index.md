@@ -44,7 +44,7 @@ actress: [Mami Mashiro]
 	      <br>
 <div class="buttons">
 <p><a href="https://filelions.site/f/w43k4n5stk95" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://wolfstream.tv/alirtq96uldq/fsdss-699.mp4.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="https://wolfstream.tv/yniuuz4wrn7m/fsdss-700.mp4.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: DVMM-042 General Male And Female Monitoring AV On The Other Side Of The Magic Mirror Is A Newly Remarried Mother! The New Dad Is Black! A High School Girl And Her New Father Challenge Each Other To Have Continuous Ejaculation Sex For 100,000 Yen Each In A Closed Room! A Foreign-sized Black Dick Is Screwed Into Her Underdeveloped Tight Pussy And The Impact Piston Hits Her Uterus Directly! …
 
 url: /v/dvmm042pl
-date: 1970-12-01T02:10:00Z
+date: 2023-12-01T02:10:00Z
 image: "dvmm042pl.jpg"
-tags: [Upcoming releases,Creampie,School Girls,Planning,Incest,Black Actor	 ]
+tags: [Censored,Creampie,School Girls,Planning,Incest,Black Actor	 ]
 maker: [Deeps]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="GPdjzg3RR9I1kKy">
     <a href="javascript:;">
         <img src="/v/dvmm042pl/dvmm042pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm042pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/GPdjzg3RR9I1kKy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/hq8akfn0lz5l" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

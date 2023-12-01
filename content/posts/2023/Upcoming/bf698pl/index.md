@@ -3,9 +3,9 @@ author: j91
 title: BF-698 A Student From The Cheerleading Club Seduced Me, The Teacher, And Made Me Cum Repeatedly While My Wife Was Away... Sakura Kurumi
 
 url: /v/bf698pl
-date: 1970-12-01T02:20:00Z
+date: 2023-12-01T02:20:00Z
 image: "bf698pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Beautiful Girl,Slut	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Beautiful Girl,Slut	 ]
 maker: [Befree]
 actress: [Kurumi Sakura  ]
 ---
@@ -13,13 +13,13 @@ actress: [Kurumi Sakura  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="kKKoXmAQr7UOlMm">
     <a href="javascript:;">
         <img src="/v/bf698pl/bf698pl.jpg" width="WIDTH" height="HEIGHT" alt="bf698pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Kurumi Sakura  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/kKKoXmAQr7UOlMm" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/52vh3vj2qs0o" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Kurumi Sakura  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

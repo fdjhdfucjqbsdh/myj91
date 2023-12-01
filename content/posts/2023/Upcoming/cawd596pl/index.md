@@ -3,9 +3,9 @@ author: j91
 title: CAWD-596 'Sora' Is A Caring And Modest Slender Beauty 'Sora' Is Fearless And Full Of Energy And Has Big Breasts 'Suzu' Reunited For The First Time In 3 Years, Beautiful Sisters (childhood Friends) With Completely Opposite Personalities And Looks Press On Her At The Same Time, Leading To Jealousy, Conflict, Depression And Inferiority Complex ...Tokyo Days That The Three Of Us Devoured Without Holding Back With Mixed Emotions Sora Amakawa And Suzu Aiho
 
 url: /v/cawd596pl
-date: 1970-12-01T02:45:00Z
+date: 2023-12-01T02:45:00Z
 image: "cawd596pl.jpg"
-tags: [Upcoming releases, Creampie,Big Tits,Sister,Drama	]
+tags: [Censored, Creampie,Big Tits,Sister,Drama	]
 maker: [Kawaii]
 actress: [Amakawa Sora ,Akane Suzu  ]
 ---
@@ -13,13 +13,13 @@ actress: [Amakawa Sora ,Akane Suzu  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="lA4Bvqez23h7Kog">
     <a href="javascript:;">
         <img src="/v/cawd596pl/cawd596pl.jpg" width="WIDTH" height="HEIGHT" alt="cawd596pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Amakawa Sora ,Akane Suzu  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/lA4Bvqez23h7Kog" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/hk4q2qxgvwak" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Amakawa Sora ,Akane Suzu  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

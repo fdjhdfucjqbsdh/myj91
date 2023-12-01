@@ -3,9 +3,9 @@ author: j91
 title: MIDV-508 Yui Mihama, The Little Devil Student Council President, Seduces You With Her Wet And Stained Panty Shots That Are Too Different From Her Refreshing Smile.
 
 url: /v/midv508pl
-date: 1970-12-01T02:55:00Z
+date: 2023-12-01T02:55:00Z
 image: "midv508pl.jpg"
-tags: [Upcoming releases,Solowork,School Girls,Other Fetish,Underwear,Beautiful Girl,Slut	 ]
+tags: [Censored,Solowork,School Girls,Other Fetish,Underwear,Beautiful Girl,Slut	 ]
 maker: [MOODYZ]
 actress: [Mihama Yui  ]
 ---
@@ -13,13 +13,13 @@ actress: [Mihama Yui  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="eqeR9q6mYqUO3a">
     <a href="javascript:;">
         <img src="/v/midv508pl/midv508pl.jpg" width="WIDTH" height="HEIGHT" alt="midv508pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Mihama Yui  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/eqeR9q6mYqUO3a" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/3ebkzue9taag" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Mihama Yui  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

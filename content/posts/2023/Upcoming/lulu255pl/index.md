@@ -3,9 +3,9 @@ author: j91
 title: LULU-255 Aiming To Find A Hole In The Heart Of My Neighbor, A Big-assed Office Lady Who Broke Up With Me Just Before Getting Married, I Attempted To Console Her By Having Sex With Her, Even Though She Is A Virgin.She Came To My First Squirt And Fell In Love With My Perfect Big Dick, And I Cummed In Her Many Times And Asked Her To Have Sex With Me. Hitomi Honda
 
 url: /v/lulu255pl
-date: 1970-12-01T02:33:00Z
+date: 2023-12-01T02:33:00Z
 image: "lulu255pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Older Sister,Virgin Man,Huge Butt	 ]
+tags: [Censored,Creampie,Solowork,Older Sister,Virgin Man,Huge Butt	 ]
 maker: [LUNATICS]
 actress: [Honda Hitomi  ]
 ---
@@ -13,13 +13,13 @@ actress: [Honda Hitomi  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="y2vv88Ld1zhoed">
     <a href="javascript:;">
         <img src="/v/lulu255pl/lulu255pl.jpg" width="WIDTH" height="HEIGHT" alt="lulu255pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Honda Hitomi  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/y2vv88Ld1zhoed" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/53xl132e7in9" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Honda Hitomi  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

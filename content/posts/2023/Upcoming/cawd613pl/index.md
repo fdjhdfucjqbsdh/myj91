@@ -43,8 +43,8 @@ actress: [Nishimoto Meisa  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/zog29skq8jei" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/wa4vv1mcxrw9" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

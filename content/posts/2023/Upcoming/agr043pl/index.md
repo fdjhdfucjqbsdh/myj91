@@ -3,9 +3,9 @@ author: j91
 title: AGR-043 The Obscene Sailor Suit Wife Next Door Miki Yoshii
 
 url: /v/agr043pl
-date: 1970-12-02T02:30:00Z
+date: 2023-12-02T02:30:00Z
 image: "agr043pl.jpg"
-tags: [Upcoming releases,Cosplay,Solowork,Big Tits,Married Woman,Mature Woman,Swimsuit	 ]
+tags: [Censored,Cosplay,Solowork,Big Tits,Married Woman,Mature Woman,Swimsuit	 ]
 maker: [ Ruby  ]
 actress: [Isawa Ryouko ]
 ---
@@ -13,13 +13,13 @@ actress: [Isawa Ryouko ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="7Dja97azpzUJGk">
     <a href="javascript:;">
         <img src="/v/agr043pl/agr043pl.jpg" width="WIDTH" height="HEIGHT" alt="agr043pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Isawa Ryouko ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7Dja97azpzUJGk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jsy0nhlgxgyt" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Isawa Ryouko ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

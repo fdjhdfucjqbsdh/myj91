@@ -3,9 +3,9 @@ author: j91
 title: MMPB-017 A Busty Actress With Overwhelming Eroticism! Squeeze Out The Sperm While Making The Plump BODY Convulse In The Extremely Violent Cowgirl Position!
 
 url: /v/mmpb017pl
-date: 1970-12-02T02:30:00Z
+date: 2023-12-02T02:30:00Z
 image: "mmpb017pl.jpg"
-tags: [Upcoming releases,Big Tits,Nasty, Hardcore,Cowgirl,4HR+,Actress Best ]
+tags: [Censored,Big Tits,Nasty, Hardcore,Cowgirl,4HR+,Actress Best ]
 maker: [Momotarou Eizou Shuppan   ]
 actress: [Suzuki Mayu, Tachibana Mary, Wakamiya Hono, Yoshine Yuria, Iwasa Mei, Chanyota Gaby, Mitsutake Marcia, Umino Hotaru ]
 ---
@@ -13,13 +13,13 @@ actress: [Suzuki Mayu, Tachibana Mary, Wakamiya Hono, Yoshine Yuria, Iwasa Mei, 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="74rm4j6VQ2FAgkr">
     <a href="javascript:;">
         <img src="/v/mmpb017pl/mmpb017pl.jpg" width="WIDTH" height="HEIGHT" alt="mmpb017pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Suzuki Mayu, Tachibana Mary, Wakamiya Hono, Yoshine Yuria, Iwasa Mei, 
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/74rm4j6VQ2FAgkr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/6vj8uiyc6eny" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Suzuki Mayu, Tachibana Mary, Wakamiya Hono, Yoshine Yuria, Iwasa Mei, 
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -12,7 +12,7 @@ actress: [Yuzuriha Karen]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="QWJPXlOQzZCkzb">
+<div class="video" data-videoid="rKOwmkyv13HxXd">
     <a href="javascript:;">
         <img src="/v/pred445pl/pred445pl.jpg" width="WIDTH" height="HEIGHT" alt="pred445pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [Yuzuriha Karen]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/QWJPXlOQzZCkzb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/rKOwmkyv13HxXd" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +41,7 @@ actress: [Yuzuriha Karen]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/krp8t8gnhiz4" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/0epqlfp9mztx" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

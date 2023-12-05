@@ -13,7 +13,7 @@ actress: [Suehiro Jun ]
 
 <div class="video" data-videoid="VWpdgJ3JOZfKLJa">
     <a href="javascript:;">
-        <img src="/v/royd135pl/royd135pl.jpg" width="WIDTH" height="HEIGHT" alt="royd135pl.mp4" loading="lazy">
+        <img src="https://my.j91.asia/posts/royd135pl/royd135pl.jpg" width="WIDTH" height="HEIGHT" alt="royd135pl.mp4" loading="lazy">
     </a>
 </div>
 

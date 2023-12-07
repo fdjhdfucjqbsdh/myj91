@@ -3,9 +3,9 @@ author: j91
 title: AARM-206 Blue Che Girl Vs. Red Che Girl Little Devil J〇 Provocation & Masturbation Support
 
 url: /v/aarm206pl
-date: 1970-12-07T00:30:00Z
+date: 2023-12-07T00:30:00Z
 image: "aarm206pl.jpg"
-tags: [Upcoming releases,School Girls,Mini Skirt,Slut,Subjectivity,Erotic Wear	 ]
+tags: [Censored,School Girls,Mini Skirt,Slut,Subjectivity,Erotic Wear	 ]
 maker: [Aroma Kikaku   ]
 actress: [ Tennen Mizuki , Sengoku Monaka]
 ---
@@ -13,13 +13,13 @@ actress: [ Tennen Mizuki , Sengoku Monaka]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_3.html">
+<div class="video" data-videoid="oDq8AvWprqfb1x">
     <a href="javascript:;">
         <img src="/v/aarm206pl/aarm206pl.jpg" width="WIDTH" height="HEIGHT" alt="aarm206pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tennen Mizuki , Sengoku Monaka]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/oDq8AvWprqfb1x" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lfrlukcz6d90" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tennen Mizuki , Sengoku Monaka]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/8t559tjl5gn4" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/hpg4yg3xxmtg" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

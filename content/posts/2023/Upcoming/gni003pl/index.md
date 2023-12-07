@@ -3,9 +3,9 @@ author: j91
 title: GNI-003 Newcomer Prestige Exclusive Debut Mizuki Aono Tall 165cm G Cup "Numaru. This Healing. The Final Boss Of 3 Consecutive Months Of Debut."
 
 url: /v/gni003pl
-date: 1970-12-07T00:44:00Z
+date: 2023-12-07T00:44:00Z
 image: "gni003pl.jpg"
-tags: [Upcoming releases,Solowork,Big Tits,Debut Production,Facials,Shaved	 ]
+tags: [Censored,Solowork,Big Tits,Debut Production,Facials,Shaved	 ]
 maker: [ Prestige  ]
 actress: [ Aono Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Aono Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_3.html">
+<div class="video" data-videoid="7YWYDXdo1wCA6Xp">
     <a href="javascript:;">
         <img src="/v/gni003pl/gni003pl.jpg" width="WIDTH" height="HEIGHT" alt="gni003pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Aono Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7YWYDXdo1wCA6Xp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/78838u6ps8oh" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Aono Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_3.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/atl3v6ywmgbq" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/k1beb69dassj" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

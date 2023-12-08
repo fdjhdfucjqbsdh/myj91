@@ -3,9 +3,9 @@ author: j91
 title: IPZZ-149 Yume Nishimiya, A New Esthetician Who Fell In Love With A Middle-aged Man Whom She Hated, Pushed His Erect Penis Against Her During A Massage And Inserted 2 Cm Through The Cloth.
 
 url: /v/ipzz149pl
-date: 1970-12-08T02:50:00Z
+date: 2023-12-08T02:50:00Z
 image: "ipzz149pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Beauty Shop,Cowgirl,Slender	 ]
+tags: [Censored,Creampie,Solowork,Beauty Shop,Cowgirl,Slender	 ]
 maker: [IDEA POCKET]
 actress: [Nishimiya Yume  ]
 ---
@@ -13,13 +13,13 @@ actress: [Nishimiya Yume  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="my4mzDPGbwhb9dL">
     <a href="javascript:;">
         <img src="/v/ipzz149pl/ipzz149pl.jpg" width="WIDTH" height="HEIGHT" alt="ipzz149pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Nishimiya Yume  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/my4mzDPGbwhb9dL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/22k2e5s4iaio" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Nishimiya Yume  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

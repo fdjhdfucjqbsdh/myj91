@@ -3,9 +3,9 @@ author: j91
 title: SSIS-927 Hikaru Nagi's J-cup Is Massaged, Licked, Pinched, And Bukkaked In A Hot Spring Trip Where You Can Expose Your Lustful Desires
 
 url: /v/ssis927pl
-date: 1970-12-08T02:55:00Z
+date: 2023-12-08T02:55:00Z
 image: "ssis927pl.jpg"
-tags: [Upcoming releases,Restraint,Solowork,Humiliation,Big Tits,Titty Fuck,Shibari	 ]
+tags: [Censored,Restraint,Solowork,Humiliation,Big Tits,Titty Fuck,Shibari	 ]
 maker: [S1 NO.1 STYLE]
 actress: [ Nagi Hikaru]
 ---
@@ -13,13 +13,13 @@ actress: [ Nagi Hikaru]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="qrKM283B9VCzezQ">
     <a href="javascript:;">
         <img src="/v/ssis927pl/ssis927pl.jpg" width="WIDTH" height="HEIGHT" alt="ssis927pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Nagi Hikaru]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/qrKM283B9VCzezQ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/37er4dsfz1rj" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Nagi Hikaru]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

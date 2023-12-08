@@ -3,9 +3,9 @@ author: j91
 title: RKI-650 She's A Popular Influencer Who Completely Looks Down On Weak Men Even Though She's Only Making Money As A Dad.I'm So Cocky That I'm Pissed Off, So I'm Going To Piss Her Off And Ruin Her Life. Amiri Saito Rika Tsubaki
 
 url: /v/rki650pl
-date: 1970-12-08T02:25:00Z
+date: 2023-12-08T02:25:00Z
 image: "rki650pl.jpg"
-tags: [Upcoming releases,Creampie,Voyeur,Beautiful Girl	 ]
+tags: [Censored,Creampie,Voyeur,Beautiful Girl	 ]
 maker: [Rookie]
 actress: [ Saitou Amiri, Tsubaki Rika]
 ---
@@ -13,13 +13,13 @@ actress: [ Saitou Amiri, Tsubaki Rika]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="0dMqQ3PMOQs0xa">
     <a href="javascript:;">
         <img src="/v/rki650pl/rki650pl.jpg" width="WIDTH" height="HEIGHT" alt="rki650pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Saitou Amiri, Tsubaki Rika]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/0dMqQ3PMOQs0xa" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/2xxuerm1cez3" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Saitou Amiri, Tsubaki Rika]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: JUQ-468 A Real Estate Lady Seduces The Husband Of A Middle-aged Couple Who Came To See The House With Panty Shots And Obscene Whispers. Reverse NTR Yuka Tada
 
 url: /v/juq468pl
-date: 1970-12-08T02:45:00Z
+date: 2023-12-08T02:45:00Z
 image: "juq468pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Married Woman,Slut,Various Professions,Mature Woman	 ]
+tags: [Censored,Creampie,Solowork,Married Woman,Slut,Various Professions,Mature Woman	 ]
 maker: [Madonna]
 actress: [Tada Yuka  ]
 ---
@@ -13,13 +13,13 @@ actress: [Tada Yuka  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="1qoXJJBxWaSeWZe">
     <a href="javascript:;">
         <img src="/v/juq468pl/juq468pl.jpg" width="WIDTH" height="HEIGHT" alt="juq468pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Tada Yuka  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/1qoXJJBxWaSeWZe" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/o97jvr1i4s4f" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Tada Yuka  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

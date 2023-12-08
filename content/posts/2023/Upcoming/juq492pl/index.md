@@ -3,9 +3,9 @@ author: j91
 title: JUQ-492 I Can't Even Tell My Husband That My Father-in-law Impregnated Me... -I Was Creampied Over And Over Again During A 1-night, 2-day Hot Spring Trip. - Reina Kuroki
 
 url: /v/juq492pl
-date: 1970-12-08T02:45:00Z
+date: 2023-12-08T02:45:00Z
 image: "juq492pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Hot Spring	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Hot Spring	 ]
 maker: [Madonna]
 actress: [Kuroki Reina  ]
 ---
@@ -13,13 +13,13 @@ actress: [Kuroki Reina  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="PD9WOOaRqlF02mo">
     <a href="javascript:;">
         <img src="/v/juq492pl/juq492pl.jpg" width="WIDTH" height="HEIGHT" alt="juq492pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Kuroki Reina  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/PD9WOOaRqlF02mo" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/6bsvow2kmuli" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Kuroki Reina  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

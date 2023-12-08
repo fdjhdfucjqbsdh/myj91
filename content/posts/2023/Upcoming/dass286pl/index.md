@@ -3,9 +3,9 @@ author: j91
 title: DASS-286 A Pure Honor Student Fell Into A Lesbian Relationship With A Delinquent Gal. Amiri Saito Sumire Kuramoto
 
 url: /v/dass286pl
-date: 1970-12-08T02:35:00Z
+date: 2023-12-08T02:35:00Z
 image: "dass286pl.jpg"
-tags: [Upcoming releases,Lesbian,School Girls,Gal,Slender,Cuckold	 ]
+tags: [Censored,Lesbian,School Girls,Gal,Slender,Cuckold	 ]
 maker: [Das !]
 actress: [Saitou Amiri, Kuramoto Sumire  ]
 ---
@@ -13,13 +13,13 @@ actress: [Saitou Amiri, Kuramoto Sumire  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="W6kK16Z1jvsbwVk">
     <a href="javascript:;">
         <img src="/v/dass286pl/dass286pl.jpg" width="WIDTH" height="HEIGHT" alt="dass286pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Saitou Amiri, Kuramoto Sumire  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/W6kK16Z1jvsbwVk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jc4yrvlgdlbi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Saitou Amiri, Kuramoto Sumire  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

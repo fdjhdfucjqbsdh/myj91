@@ -3,9 +3,9 @@ author: j91
 title: RKI-656 A Man's Super Bukkake SEX That Releases The World's Largest Amount Of Semen Into His Anus And Reverses The Sperm Enema.Alice Oto
 
 url: /v/rki656pl
-date: 1970-12-08T02:25:00Z
+date: 2023-12-08T02:25:00Z
 image: "rki656pl.jpg"
-tags: [Upcoming releases,Blow,Creampie,Solowork,Other Fetish,Bukkake,Premature Ejaculation	 ]
+tags: [Censored,Blow,Creampie,Solowork,Other Fetish,Bukkake,Premature Ejaculation	 ]
 maker: [Rookie]
 actress: [Seina Arisa  ]
 ---
@@ -13,13 +13,13 @@ actress: [Seina Arisa  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="qvpJkWaparhz98Y">
     <a href="javascript:;">
         <img src="/v/rki656pl/rki656pl.jpg" width="WIDTH" height="HEIGHT" alt="rki656pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Seina Arisa  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/qvpJkWaparhz98Y" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/o5ukrxy52kfl" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Seina Arisa  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

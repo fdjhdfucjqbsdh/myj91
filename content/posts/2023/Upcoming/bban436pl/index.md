@@ -3,9 +3,9 @@ author: j91
 title: BBAN-436 I Can't Run Away Anymore... Crazy Confinement And Bondage...Lesbian Training With Pet Doll Kokona Asakura Sumire Kurokawa
 
 url: /v/bban436pl
-date: 1970-12-08T02:20:00Z
+date: 2023-12-08T02:20:00Z
 image: "bban436pl.jpg"
-tags: [Upcoming releases, SM,Lesbian,Big Tits,Shibari,Lesbian Kiss	]
+tags: [Censored, SM,Lesbian,Big Tits,Shibari,Lesbian Kiss	]
 maker: [Bibian]
 actress: [Kurokawa Sumire ,Asakura Kokona  ]
 ---
@@ -13,13 +13,13 @@ actress: [Kurokawa Sumire ,Asakura Kokona  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="BJJOBw46D9T2Al">
     <a href="javascript:;">
         <img src="/v/bban436pl/bban436pl.jpg" width="WIDTH" height="HEIGHT" alt="bban436pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Kurokawa Sumire ,Asakura Kokona  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/BJJOBw46D9T2Al" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/fi17c4j56i8o" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Kurokawa Sumire ,Asakura Kokona  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: DASS-277 My Private Parts Were Touched So Much By A Dispatched Masseuse That I Couldn't Bear The Pleasure And Ended Up Cuckolding Her. Aina Namiki
 
 url: /v/dass277pl
-date: 1970-12-08T02:35:00Z
+date: 2023-12-08T02:35:00Z
 image: "dass277pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Married Woman,Massage,Cuckold	 ]
+tags: [Censored,Creampie,Solowork,Married Woman,Massage,Cuckold	 ]
 maker: [Das !]
 actress: [Namiki Aina ]
 ---
@@ -13,13 +13,13 @@ actress: [Namiki Aina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="KgkZYK41M2U0RJK">
     <a href="javascript:;">
         <img src="/v/dass277pl/dass277pl.jpg" width="WIDTH" height="HEIGHT" alt="dass277pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Namiki Aina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/KgkZYK41M2U0RJK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/mbmgpb88qusn" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Namiki Aina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

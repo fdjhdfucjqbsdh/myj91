@@ -12,7 +12,7 @@ actress: [ Misono Waka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="3rLOaXLy9vCdq1p">
+<div class="video" data-videoid="PvG0rqbXPatRrQ">
     <a href="javascript:;">
         <img src="/v/doa054pl/doa054pl.jpg" width="WIDTH" height="HEIGHT" alt="doa054pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [ Misono Waka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/3rLOaXLy9vCdq1p" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/PvG0rqbXPatRrQ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/m923c3caq31g" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

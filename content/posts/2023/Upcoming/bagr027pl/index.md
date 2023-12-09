@@ -3,9 +3,9 @@ author: j91
 title: BAGR-027 Completely Subjective, Hentai Brother Calls! Yumeru Kotoishi, A Little Sister Who Wants To Show Off Her Sex To Her Older Brother, Who Is A Siscon, And Cums As A Little Devil With Her Masochistic Face
 
 url: /v/bagr027pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "bagr027pl.jpg"
-tags: [Upcoming releases, Solowork,Dirty Words,Beautiful Girl,Incest,Sister,Cuckold	]
+tags: [Censored, Solowork,Dirty Words,Beautiful Girl,Incest,Sister,Cuckold	]
 maker: [ Barutan  ]
 actress: [ Kotoishi Yume ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kotoishi Yume ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="pLLVqeR64YCreKY">
     <a href="javascript:;">
         <img src="/v/bagr027pl/bagr027pl.jpg" width="WIDTH" height="HEIGHT" alt="bagr027pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kotoishi Yume ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/pLLVqeR64YCreKY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/bf7umbe7lhz9" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kotoishi Yume ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

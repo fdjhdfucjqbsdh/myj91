@@ -3,9 +3,9 @@ author: j91
 title: GMA-054 Bondage Training Wife - Masochist Tendencies And Self-bondage Masturbation That Are Not Enough For Her Husband. Shiokawa Uni, An Unfaithful Wife Who Enjoys Being Raped By Her Husband's Subordinate Who Satisfied Her
 
 url: /v/gma054pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "gma054pl.jpg"
-tags: [Upcoming releases,SM,Solowork,Shibari,Abuse,Mature Woman	 ]
+tags: [Censored,SM,Solowork,Shibari,Abuse,Mature Woman	 ]
 maker: [Global Media Annex   ]
 actress: [ Shiokawa Uni ]
 ---
@@ -13,13 +13,13 @@ actress: [ Shiokawa Uni ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="0pWVvdbJaZib19d">
     <a href="javascript:;">
         <img src="/v/gma054pl/gma054pl.jpg" width="WIDTH" height="HEIGHT" alt="gma054pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Shiokawa Uni ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/0pWVvdbJaZib19d" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/p7s5twai0ssb" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Shiokawa Uni ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

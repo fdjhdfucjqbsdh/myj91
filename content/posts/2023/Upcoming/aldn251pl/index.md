@@ -3,9 +3,9 @@ author: j91
 title: ALDN-251 At That Time, My Mother-in-law Invited Me... Yoshii Miki
 
 url: /v/aldn251pl
-date: 1970-12-09T02:50:00Z
+date: 2023-12-09T02:50:00Z
 image: "aldn251pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Drama	 ]
+tags: [Censored,Creampie,Solowork,Big Tits,Married Woman,Mature Woman,Drama	 ]
 maker: [ Takara Eizou  ]
 actress: [Isawa Ryouko ]
 ---
@@ -13,13 +13,13 @@ actress: [Isawa Ryouko ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="Ygx9wMop6ks62J">
     <a href="javascript:;">
         <img src="/v/aldn251pl/aldn251pl.jpg" width="WIDTH" height="HEIGHT" alt="aldn251pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Isawa Ryouko ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Ygx9wMop6ks62J" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/cx49iv0bensu" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Isawa Ryouko ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

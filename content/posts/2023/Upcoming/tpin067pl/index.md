@@ -3,9 +3,9 @@ author: j91
 title: TPIN-067 My House Was Occupied From Morning Until Night And I Had A Lot Of Sex With Two Monster Girls Who Lived In The Same Apartment And Had A Sexual Desire Bug.Mao Hamasaki, Sakura Mita.
 
 url: /v/tpin067pl
-date: 1970-12-09T02:50:00Z
+date: 2023-12-09T02:50:00Z
 image: "tpin067pl.jpg"
-tags: [Upcoming releases, Creampie,3P, 4P,Slut,Urination	]
+tags: [Censored, Creampie,3P, 4P,Slut,Urination	]
 maker: [ Tsubakihoin  ]
 actress: [Hamasaki Mao, Mita Sakura ]
 ---
@@ -13,13 +13,13 @@ actress: [Hamasaki Mao, Mita Sakura ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="O6268DzGZ7uZjrW">
     <a href="javascript:;">
         <img src="/v/tpin067pl/tpin067pl.jpg" width="WIDTH" height="HEIGHT" alt="tpin067pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Hamasaki Mao, Mita Sakura ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/O6268DzGZ7uZjrW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/uhyrtjynliqq" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Hamasaki Mao, Mita Sakura ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

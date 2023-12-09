@@ -3,9 +3,9 @@ author: j91
 title: DVAJ-636 Rimu Yumino's Extremely Exposed Younger Sister Wanders Around The House In An Erotic And Outrageous Breast-exposing Costume, So I Make Her Understand By Massaging Her Breasts And Giving Her A Hard-on Punch.
 
 url: /v/dvaj636pl
-date: 1970-12-09T02:55:00Z
+date: 2023-12-09T02:55:00Z
 image: "dvaj636pl.jpg"
-tags: [Upcoming releases,Cosplay,Creampie,Solowork,Incest,Sister	 ]
+tags: [Censored,Cosplay,Creampie,Solowork,Incest,Sister	 ]
 maker: [ Alice Japan  ]
 actress: [Yumino Rimu  ]
 ---
@@ -13,13 +13,13 @@ actress: [Yumino Rimu  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="78DxbeYQbRiALAl">
     <a href="javascript:;">
         <img src="/v/dvaj636pl/dvaj636pl.jpg" width="WIDTH" height="HEIGHT" alt="dvaj636pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Yumino Rimu  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/78DxbeYQbRiALAl" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/qlp9syyfxagb" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Yumino Rimu  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

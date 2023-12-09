@@ -3,9 +3,9 @@ author: j91
 title: SITW-042 The Slender Blonde Beauty Who Picked Up Amateur Women In Hungary And Got Them Was A Good-natured Entrepreneur Who Loves Sushi! I Took Advantage Of The Kindness Of A Compassionate Hungarian Woman, Kneeled Down On My Knees, Begged Her, And Had Sex With Her Raw Creampie Www Tiffany Tatum
 
 url: /v/sitw042pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "sitw042pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Humiliation,Nampa,Slender,White Actress	 ]
+tags: [Censored,Creampie,Solowork,Humiliation,Nampa,Slender,White Actress	 ]
 maker: [ Suparutan - Mousou Zoku Inta-nashonaru  ]
 actress: [Tiffany Tatum  ]
 ---
@@ -13,13 +13,13 @@ actress: [Tiffany Tatum  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="a4kXvybm7gFWj7">
     <a href="javascript:;">
         <img src="/v/sitw042pl/sitw042pl.jpg" width="WIDTH" height="HEIGHT" alt="sitw042pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Tiffany Tatum  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/a4kXvybm7gFWj7" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/5ec3396ecd2p" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Tiffany Tatum  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

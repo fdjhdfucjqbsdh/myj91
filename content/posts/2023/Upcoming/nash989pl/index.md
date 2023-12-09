@@ -3,9 +3,9 @@ author: j91
 title: NASH-989 A Special Feature On 23 Beautiful Mature Women Who Know All About Men And Their Erotic Blowjobs VOL.02
 
 url: /v/nash989pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "nash989pl.jpg"
-tags: [Upcoming releases,Blow,Best, Omnibus,Big Tits,4HR+,Mature Woman	 ]
+tags: [Censored,Blow,Best, Omnibus,Big Tits,4HR+,Mature Woman	 ]
 maker: [Nadeshiko   ]
 actress: [ Kawakami Yuu,Endou Shihori,Sena Hikari, Fujishita Rika, Inoue Ayako, Shimazu Kaoru, Miyamura Nanako ,Iiyama Kaori,Isumi Yuume, Takeuchi Natsuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kawakami Yuu,Endou Shihori,Sena Hikari, Fujishita Rika, Inoue Ayako, 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="vLaqk8DwQ8F4glM">
     <a href="javascript:;">
         <img src="/v/nash989pl/nash989pl.jpg" width="WIDTH" height="HEIGHT" alt="nash989pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kawakami Yuu,Endou Shihori,Sena Hikari, Fujishita Rika, Inoue Ayako, 
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/vLaqk8DwQ8F4glM" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/zf1gl49d4i24" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kawakami Yuu,Endou Shihori,Sena Hikari, Fujishita Rika, Inoue Ayako, 
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

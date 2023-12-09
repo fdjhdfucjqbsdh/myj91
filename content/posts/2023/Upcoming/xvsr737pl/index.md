@@ -3,9 +3,9 @@ author: j91
 title: XVSR-737 Secret Excavation Project Get Beautiful Big Breasts! Popular Actress Gonzo SEX SPECIAL
 
 url: /v/xvsr737pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "xvsr737pl.jpg"
-tags: [Upcoming releases, Best, Omnibus,Big Tits,POV,Beautiful Girl,4HR+	]
+tags: [Censored, Best, Omnibus,Big Tits,POV,Beautiful Girl,4HR+	]
 maker: [ MAX-A  ]
 actress: [ Niimura Akari, Nonomiya Ran, Akari Miku, Tani Azusa,Yamamoto Renka,Arima Karen, Hazuki Rino, Ayaka, Chinamin, Hoshi Yuuka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Niimura Akari, Nonomiya Ran, Akari Miku, Tani Azusa,Yamamoto Renka,Ar
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="6wYL2V7W1Ps98D4">
     <a href="javascript:;">
         <img src="/v/xvsr737pl/xvsr737pl.jpg" width="WIDTH" height="HEIGHT" alt="xvsr737pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Niimura Akari, Nonomiya Ran, Akari Miku, Tani Azusa,Yamamoto Renka,Ar
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/6wYL2V7W1Ps98D4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/5219g7fl7r0y" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Niimura Akari, Nonomiya Ran, Akari Miku, Tani Azusa,Yamamoto Renka,Ar
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

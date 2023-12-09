@@ -3,9 +3,9 @@ author: j91
 title: GDRD-012 Red Dragon Aori Arisei
 
 url: /v/gdrd012pl
-date: 1970-12-09T02:50:00Z
+date: 2023-12-09T02:50:00Z
 image: "gdrd012pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Gal,Titty Fuck,Prostitutes,Sun tan	 ]
+tags: [Censored,Creampie,Solowork,Gal,Titty Fuck,Prostitutes,Sun tan	 ]
 maker: [GOLD - Mousozoku   ]
 actress: [ Arise Aori]
 ---
@@ -13,13 +13,13 @@ actress: [ Arise Aori]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="3ooD9LpYz9Fdvzp">
     <a href="javascript:;">
         <img src="/v/gdrd012pl/gdrd012pl.jpg" width="WIDTH" height="HEIGHT" alt="gdrd012pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Arise Aori]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/3ooD9LpYz9Fdvzp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/wsjfuu6d5lnj" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Arise Aori]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

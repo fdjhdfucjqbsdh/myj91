@@ -3,9 +3,9 @@ author: j91
 title: DAVK-088 [Middle-aged Giant Dick Is Continuously Inserted Into The Innocent Crack Of A Small Child Who Seems To Be A Little Lacking] Group Orgy SEX Where Middle-aged Semen Is Ejaculated One After Another Into The Womb Of No Resistance Until The Piston Is Exhausted
 
 url: /v/davk088pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "davk088pl.jpg"
-tags: [Upcoming releases,Outdoors,Uniform,School Girls,Promiscuity,Mini	 ]
+tags: [Censored,Outdoors,Uniform,School Girls,Promiscuity,Mini	 ]
 maker: [ Doujin AV kurabu- Mousozoku  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="3dJwZ6XrzBsXYo">
     <a href="javascript:;">
         <img src="/v/davk088pl/davk088pl.jpg" width="WIDTH" height="HEIGHT" alt="davk088pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/3dJwZ6XrzBsXYo" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/zaigadtchxlu" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

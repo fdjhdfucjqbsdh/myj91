@@ -3,9 +3,9 @@ author: j91
 title: ARAN-075 Brainwashing Club That Keeps You Cumming A Dangerous Climax Hell Due To Aphrodisiacs Haruka Kisaragi, A Male Girl Who Became Crazy After Being Trained
 
 url: /v/aran075pl
-date: 1970-12-09T02:30:00Z
+date: 2023-12-09T02:30:00Z
 image: "aran075pl.jpg"
-tags: [Upcoming releases, Transsexual,Restraint,Solowork,Beauty Shop,Torture,Cross Dressing	]
+tags: [Censored, Transsexual,Restraint,Solowork,Beauty Shop,Torture,Cross Dressing	]
 maker: [ Baby Entertainment  ]
 actress: [ Kisaragi Haruka]
 ---
@@ -13,13 +13,13 @@ actress: [ Kisaragi Haruka]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="0309PwV6W2FbOoz">
     <a href="javascript:;">
         <img src="/v/aran075pl/aran075pl.jpg" width="WIDTH" height="HEIGHT" alt="aran075pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kisaragi Haruka]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/0309PwV6W2FbOoz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/gejom85g3yd5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kisaragi Haruka]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

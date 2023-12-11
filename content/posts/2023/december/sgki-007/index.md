@@ -4,7 +4,7 @@ title: SGKI-007 Prefectural Shinogahara [Piston Vibrator] Girls’ School
 url: /v/sgki-007
 date: 2023-12-11T17:00:00Z
 image: "sgki-007.jpg"
-tags: [Censored, ]
+tags: [Censored,Squirting,Uniform,Vibe ]
 maker: []
 actress: [ ]
 ---

@@ -4,9 +4,9 @@ title: STARS-958 “I Like You, Both Your Dick And Your Brain Are Stupid ♪” 
 url: /v/stars-958
 date: 2023-12-11T17:20:00Z
 image: "stars-958.jpg"
-tags: [Censored, ]
+tags: [Censored, Big Tits,Hotel,Slut,Solowork,Submissive Men]
 maker: [SOD Create]
-actress: [ ]
+actress: [ Hamabe Shiho]
 ---
 
 

@@ -4,9 +4,9 @@ title: STARS-955 Minamo, The Cutest Student In The Grade, Is Trying To Tempt Me 
 url: /v/stars-955
 date: 2023-12-11T17:20:00Z
 image: "stars-955.jpg"
-tags: [Censored, ]
+tags: [Censored, Big Tits,Breasts,Creampie,Planning,Solowork,Uniform]
 maker: [SOD Create]
-actress: [ ]
+actress: [ MINAMO]
 ---
 
 

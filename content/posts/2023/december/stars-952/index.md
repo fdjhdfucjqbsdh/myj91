@@ -4,9 +4,9 @@ title: STARS-952 While Their Parents Were Away, My Neet Brother R***d, Imprisone
 url: /v/stars-952
 date: 2023-12-11T17:20:00Z
 image: "stars-952.jpg"
-tags: [Censored, ]
+tags: [Censored, Confinement,Gal,Incest,Restraint,Solowork]
 maker: [SOD Create]
-actress: [ ]
+actress: [Ogura Yuna ]
 ---
 
 

@@ -4,9 +4,9 @@ title: MOGI-119 [First Shooting] A Beautiful Pharmacy Student Who Cares About He
 url: /v/mogi-119
 date: 2023-12-11T17:15:00Z
 image: "mogi-119.jpg"
-tags: [Censored, ]
+tags: [Censored, 3P&4P,Creampie,Debut Production,Documentary,Solowork]
 maker: [SOD Create]
-actress: [ ]
+actress: [Asano Riru]
 ---
 
 

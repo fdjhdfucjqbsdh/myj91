@@ -4,7 +4,7 @@ title: SGKI-006 Will The Master Of Calligraphy Be Able To Write His Brush As Usu
 url: /v/sgki-006
 date: 2023-12-11T17:00:00Z
 image: "sgki-006.jpg"
-tags: [Censored, ]
+tags: [Censored,Prank,Squirting,Vibe,Yukata ]
 maker: []
 actress: [ ]
 ---

@@ -3,9 +3,9 @@ author: j91
 title: HMN-510 I Want To Try Again With My Wife Who Is Having An Affair...I Insert My Aphrodisiac Dick From Behind My Sleeping Wife! Yuma Sano Made Us Cum With A Super Slow Piston And Asked Each Other Many Times Until Morning With Creampie Convulsive Sex
 
 url: /v/hmn510pl
-date: 1970-12-15T02:35:00Z
+date: 2023-12-15T02:35:00Z
 image: "hmn510pl.jpg"
-tags: [Upcoming releases,Blow,Creampie,Solowork,Big Tits,Married Woman,Drama	 ]
+tags: [Censored,Blow,Creampie,Solowork,Big Tits,Married Woman,Drama	 ]
 maker: [Honnaka]
 actress: [Sano Yuma  ]
 ---
@@ -13,13 +13,13 @@ actress: [Sano Yuma  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="g9RaWj9kaOsq232">
     <a href="javascript:;">
         <img src="/v/hmn510pl/hmn510pl.jpg" width="WIDTH" height="HEIGHT" alt="hmn510pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Sano Yuma  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/g9RaWj9kaOsq232" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/dfoqwg3p02mg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Sano Yuma  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MUDR-244 While My Wife's Stepchild Is Taking A Bath... Natsuki Hoshino Continuously Inseminates My Daughter-in-law Who Can Be Held At Any Time
 
 url: /v/mudr244pl
-date: 1970-12-15T02:12:00Z
+date: 2023-12-15T02:12:00Z
 image: "mudr244pl.jpg"
-tags: [Upcoming releases,Creampie,School Girls,Big Tits,Incest,Original Collaboration	 ]
+tags: [Censored,Creampie,School Girls,Big Tits,Incest,Original Collaboration	 ]
 maker: [Muku]
 actress: [ Hoshino Natsuki, Oki Rei ]
 ---
@@ -13,13 +13,13 @@ actress: [ Hoshino Natsuki, Oki Rei ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="vkLVkbAj6JUBzW">
     <a href="javascript:;">
         <img src="/v/mudr244pl/mudr244pl.jpg" width="WIDTH" height="HEIGHT" alt="mudr244pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Hoshino Natsuki, Oki Rei ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/vkLVkbAj6JUBzW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/e2whazc5u0gi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Hoshino Natsuki, Oki Rei ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

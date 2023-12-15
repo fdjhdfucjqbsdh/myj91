@@ -3,9 +3,9 @@ author: j91
 title: MUKC-044 A Horny Cosplay Idol Who Immerses Herself In An Old Man. A Little Devil Who Seduces You In A Solo Video. A Slut Orgasms And Off-paco 4SEX. Exclusive Kanon Kanon.
 
 url: /v/mukc044pl
-date: 1970-12-15T02:12:00Z
+date: 2023-12-15T02:12:00Z
 image: "mukc044pl.jpg"
-tags: [Upcoming releases,Cosplay,Creampie,Solowork,Beautiful Girl,Slut,Entertainer	 ]
+tags: [Censored,Cosplay,Creampie,Solowork,Beautiful Girl,Slut,Entertainer	 ]
 maker: [Muku]
 actress: [ Kanade Kanon ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kanade Kanon ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="zbMxVbmLXPCgD0">
     <a href="javascript:;">
         <img src="/v/mukc044pl/mukc044pl.jpg" width="WIDTH" height="HEIGHT" alt="mukc044pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kanade Kanon ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/zbMxVbmLXPCgD0" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/m8kwtyeibkfj" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kanade Kanon ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

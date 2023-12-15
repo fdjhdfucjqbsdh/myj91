@@ -3,9 +3,9 @@ author: j91
 title: PRED-542 It's Worse Than Pinsaro! I Was Captivated By A Follow-up Blow Job When My Childhood Friend Confessed His Love For Pacifiers... Shiramine Miu
 
 url: /v/pred542pl
-date: 1970-12-15T02:50:00Z
+date: 2023-12-15T02:50:00Z
 image: "pred542pl.jpg"
-tags: [Upcoming releases, Blow,Solowork,Nasty, Hardcore,Facials,Slut	]
+tags: [Censored, Blow,Solowork,Nasty, Hardcore,Facials,Slut	]
 maker: [Premium]
 actress: [Shiromine Miu  ]
 ---
@@ -13,13 +13,13 @@ actress: [Shiromine Miu  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="Mz1pzJjW3bIejy">
     <a href="javascript:;">
         <img src="/v/pred542pl/pred542pl.jpg" width="WIDTH" height="HEIGHT" alt="pred542pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Shiromine Miu  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Mz1pzJjW3bIejy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/346tzrn5cg6u" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Shiromine Miu  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

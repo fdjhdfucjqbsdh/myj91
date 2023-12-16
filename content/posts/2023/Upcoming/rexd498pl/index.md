@@ -1,6 +1,6 @@
 ---
 author: j91
-title: REXD-498 Beautiful Journalist: The Woman Who Knew Too Much 2 Mao Hamasaki
+title: REXD-498 Beautiful Journalist, The Woman Who Knew Too Much 2 Mao Hamasaki
 
 url: /v/rexd498pl
 date: 1970-12-22T02:09:00Z

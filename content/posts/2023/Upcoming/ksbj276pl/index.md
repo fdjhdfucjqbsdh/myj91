@@ -3,9 +3,9 @@ author: j91
 title: KSBJ-276 Abstinence Release, Overwhelming Orgasm Awakened By Aphrodisiac Yuri Hanai
 
 url: /v/ksbj276pl
-date: 1970-12-16T02:30:00Z
+date: 2023-12-16T02:30:00Z
 image: "ksbj276pl.jpg"
-tags: [Upcoming releases, Creampie,Solowork,Big Tits,Slender,Mature Woman,Toy	]
+tags: [Censored, Creampie,Solowork,Big Tits,Slender,Mature Woman,Toy	]
 maker: [ KSB Kikaku - Emmanuelle  ]
 actress: [Hanai Yuri  ]
 ---
@@ -13,13 +13,13 @@ actress: [Hanai Yuri  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="WQDGe04YQ3UblOW">
     <a href="javascript:;">
         <img src="/v/ksbj276pl/ksbj276pl.jpg" width="WIDTH" height="HEIGHT" alt="ksbj276pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Hanai Yuri  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/WQDGe04YQ3UblOW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jmh3b3oo5nug" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Hanai Yuri  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

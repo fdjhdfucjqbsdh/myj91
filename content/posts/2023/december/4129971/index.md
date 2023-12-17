@@ -2,7 +2,7 @@
 author: j91
 title: FC2PPV 4129971 A Diamond In The Rough ♡ It’s Only 1.8 Months Since I Graduated From J/K Who Came To Tokyo From Tokushima. Imio-Chan ♪ A Simple And Innocent Woman. Creampie Twice In Noko ♡
 url: /v/4129971
-date: 2023-12-02T01:10:00Z
+date: 2023-12-17T01:10:00Z
 image: "4129971.jpg"
 tags: [Uncensored, ]
 maker: [FC2PPV]

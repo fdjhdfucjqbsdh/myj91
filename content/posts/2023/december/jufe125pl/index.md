@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-101 The Defenseless Big Breasts Sister Who Is Fucked By A Super-unequaled Younger Brother Intends To Seduce The Virgin Brother ... Reversed! Sayama Love
+title: JUFE-125 Bodycon Female Teacher Molester Targeted By DQN Students In The Countryside Just Choosing Clothes That Emphasize Obscene Body ... Tsugumi Morimoto
 
-url: /v/jufe101pl
-date: 2019-12-17T02:30:00Z
-image: "jufe101pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Older Sister,Big Tits,Titty Fuck,Incest	 ]
-maker: [ Fitch  ]
-actress: [Sayama Ai]
+url: /was/jufe125pl
+date: 2019-12-17T02:00:00Z
+image: "jufe125pl.jpg"
+tags: [Old Releases,Censored,Big tits, Creampie, Female teacher, Molester, Promiscuity ]
+maker: [Fitch]
+actress: [ Morimoto Tsugumi]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="zPA0JzmbWQUYd93">
+<div class="video" data-videoid="R6KlJ29pJRhdQB0">
     <a href="javascript:;">
-        <img src="/v/jufe101pl/jufe101pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe101pl.mp4" loading="lazy">
+        <img src="/was/jufe125pl/jufe125pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe125pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/zPA0JzmbWQUYd93" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/R6KlJ29pJRhdQB0" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/hx18615nuz5c" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/xicdqnxgtdzj" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

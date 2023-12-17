@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-101 The Defenseless Big Breasts Sister Who Is Fucked By A Super-unequaled Younger Brother Intends To Seduce The Virgin Brother ... Reversed! Sayama Love
+title: JUNY-016 Deca Butt That Is Too Weak To Push And Is Sexually Harassed M Daughter Receptionist Kanae Kawahara
 
-url: /v/jufe101pl
-date: 2019-12-17T02:30:00Z
-image: "jufe101pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Older Sister,Big Tits,Titty Fuck,Incest	 ]
-maker: [ Fitch  ]
-actress: [Sayama Ai]
+url: /was/juny016pl
+date: 2019-12-17T02:00:00Z
+image: "juny016pl.jpg"
+tags: [Old Releases,Censored, BBW, Creampie, Huge Butt, OL, Pantyhose]
+maker: [Fitch]
+actress: [Kawahara Kanae ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="zPA0JzmbWQUYd93">
+<div class="video" data-videoid="xq9bMVJqRmck287">
     <a href="javascript:;">
-        <img src="/v/jufe101pl/jufe101pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe101pl.mp4" loading="lazy">
+        <img src="/was/juny016pl/juny016pl.jpg" width="WIDTH" height="HEIGHT" alt="juny016pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/zPA0JzmbWQUYd93" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/xq9bMVJqRmck287" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/hx18615nuz5c" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/d7xhac5wafdu" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

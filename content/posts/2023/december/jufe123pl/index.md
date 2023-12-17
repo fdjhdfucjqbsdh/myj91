@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-101 The Defenseless Big Breasts Sister Who Is Fucked By A Super-unequaled Younger Brother Intends To Seduce The Virgin Brother ... Reversed! Sayama Love
+title: JUFE-123 An Exquisite Custom Full Course That Anna Kurata Comfortably Pulls Out With Cosplay Too Erotic!
 
-url: /v/jufe101pl
-date: 2019-12-17T02:30:00Z
-image: "jufe101pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Older Sister,Big Tits,Titty Fuck,Incest	 ]
-maker: [ Fitch  ]
-actress: [Sayama Ai]
+url: /was/jufe123pl
+date: 2019-12-17T02:00:00Z
+image: "jufe123pl.jpg"
+tags: [Old Releases,Censored,BBW, Big tits, Cosplay, Creampie, Prostitutes ]
+maker: [Fitch]
+actress: [Kurata Anna ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="zPA0JzmbWQUYd93">
+<div class="video" data-videoid="OxLv8L3kket1J4">
     <a href="javascript:;">
-        <img src="/v/jufe101pl/jufe101pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe101pl.mp4" loading="lazy">
+        <img src="/was/jufe123pl/jufe123pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe123pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/zPA0JzmbWQUYd93" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/OxLv8L3kket1J4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/hx18615nuz5c" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/1obmrrdtpoar" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

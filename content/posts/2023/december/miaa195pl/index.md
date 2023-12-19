@@ -13,7 +13,7 @@ actress: [ Kashiwagi Kurumi]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="9BY4JJd4mvCagkK">
+<div class="video" data-videoid="wGQZ1ZjwrbFJq9X">
     <a href="javascript:;">
         <img src="/was/miaa195pl/miaa195pl.jpg" width="WIDTH" height="HEIGHT" alt="miaa195pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Kashiwagi Kurumi]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/9BY4JJd4mvCagkK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/wGQZ1ZjwrbFJq9X" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ Kashiwagi Kurumi]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/b2t0ngfkkoyb" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/goj5fak44itc" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

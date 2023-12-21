@@ -13,7 +13,7 @@ actress: [ Takimoto Shizuha ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="JpqWBkJgPwCjp2g">
+<div class="video" data-videoid="W3J9L73mB3fb66P">
     <a href="javascript:;">
         <img src="/v/abf056pl/abf056pl.jpg" width="WIDTH" height="HEIGHT" alt="abf056pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Takimoto Shizuha ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/JpqWBkJgPwCjp2g" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/W3J9L73mB3fb66P" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/2ejn588uutdb" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

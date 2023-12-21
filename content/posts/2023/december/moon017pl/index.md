@@ -12,7 +12,7 @@ actress: [Komatsu An ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="lD2Xby4KA6s74kg">
+<div class="video" data-videoid="jZ78JeP4yBizXJY">
     <a href="javascript:;">
         <img src="/v/moon017pl/moon017pl.jpg" width="WIDTH" height="HEIGHT" alt="moon017pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [Komatsu An ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/lD2Xby4KA6s74kg" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/jZ78JeP4yBizXJY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/vvfquf2oksf5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
@@ -43,7 +43,7 @@ actress: [Komatsu An ]
 	      <br>
 <div class="buttons">
 <p><a href="https://filelions.site/f/yyo8y4d5df0r" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://filemoon.sx/d/gj9z6l40qebk" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filemoon.sx/d/1pt40h67wazh" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

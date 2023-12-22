@@ -3,9 +3,9 @@ author: j91
 title: CJOB-143 Ultra-vacuum Hyottoko Blowjob Genius BEST
 
 url: /v/cjob143pl
-date: 1970-12-22T02:00:00Z
+date: 2023-12-22T02:00:00Z
 image: "cjob143pl.jpg"
-tags: [Upcoming releases, Blow,Best, Omnibus,Facials,Slut,4HR+	]
+tags: [Censored, Blow,Best, Omnibus,Facials,Slut,4HR+	]
 maker: [Bi]
 actress: [ Honma Yuri , Hatsukawa Minami, Mochizuki Arare, Nanase Hina, Matsumoto Ichika, Saeki Yumika, Tsujii Honoka, Komine Hinata, Kudou Rara , Kuramoto Sumire]
 ---
@@ -13,13 +13,13 @@ actress: [ Honma Yuri , Hatsukawa Minami, Mochizuki Arare, Nanase Hina, Matsumot
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="YZZ1GkeW9JTvDgv">
     <a href="javascript:;">
         <img src="/v/cjob143pl/cjob143pl.jpg" width="WIDTH" height="HEIGHT" alt="cjob143pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Honma Yuri , Hatsukawa Minami, Mochizuki Arare, Nanase Hina, Matsumot
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/YZZ1GkeW9JTvDgv" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/m3a06fvwrdud" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Honma Yuri , Hatsukawa Minami, Mochizuki Arare, Nanase Hina, Matsumot
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

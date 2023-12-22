@@ -3,9 +3,9 @@ author: j91
 title: JYMA-046 A Frustrated Wife With Big Breasts And Butt Eats Men All Over Again. A Lewd Masochist Wife With A Voluptuous Body That Has A Monster Sexual Desire. A Lewd Wife With A Masochistic Slut's Proclivities Gets Wild. Nina Nishimura
 
 url: /v/jyma046pl
-date: 1970-12-22T02:35:00Z
+date: 2023-12-22T02:35:00Z
 image: "jyma046pl.jpg"
-tags: [Upcoming releases, Creampie,Solowork,Big Tits,Married Woman,Nasty, Hardcore,BBW,Ultra-Huge Tits,Huge Butt	]
+tags: [Censored, Creampie,Solowork,Big Tits,Married Woman,Nasty, Hardcore,BBW,Ultra-Huge Tits,Huge Butt	]
 maker: [Tsukuzuku Onna Wa Tsurai Yo]
 actress: [Nishimura Nina ]
 ---
@@ -13,13 +13,13 @@ actress: [Nishimura Nina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="8JJAZrl6rRfjJ7">
     <a href="javascript:;">
         <img src="/v/jyma046pl/jyma046pl.jpg" width="WIDTH" height="HEIGHT" alt="jyma046pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Nishimura Nina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/8JJAZrl6rRfjJ7" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/8aav482q9839" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Nishimura Nina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

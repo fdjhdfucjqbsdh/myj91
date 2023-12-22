@@ -3,9 +3,9 @@ author: j91
 title: DASS-282 I Don't Want You To Be Near My Boyfriend. The Temptation Of A Girl With Short Hair In Kansai Dialect Who Is Too Cute. Waka Misono
 
 url: /v/dass282pl
-date: 1970-12-22T02:40:00Z
+date: 2023-12-22T02:40:00Z
 image: "dass282pl.jpg"
-tags: [Upcoming releases, Creampie,Solowork,Big Tits,Subjectivity,Cuckold	]
+tags: [Censored, Creampie,Solowork,Big Tits,Subjectivity,Cuckold	]
 maker: [Das !]
 actress: [ Misono Waka]
 ---
@@ -13,13 +13,13 @@ actress: [ Misono Waka]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="MrYjkP29JzfejZ">
     <a href="javascript:;">
         <img src="/v/dass282pl/dass282pl.jpg" width="WIDTH" height="HEIGHT" alt="dass282pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misono Waka]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/MrYjkP29JzfejZ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/r8rdw28mnk8d" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misono Waka]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

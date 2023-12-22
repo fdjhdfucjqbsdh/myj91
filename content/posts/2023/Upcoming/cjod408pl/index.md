@@ -3,9 +3,9 @@ author: j91
 title: CJOD-408 My Frustrated Ex-slut Wife Begs For A Cum Swallowing Blowjob And A Huge Butt Creampie Piston That Squeezes Her Out 20 Times A Day And Causes Trouble For My Neighbors... Mizuki Yayoi
 
 url: /v/cjod408pl
-date: 1970-12-22T02:35:00Z
+date: 2023-12-22T02:35:00Z
 image: "cjod408pl.jpg"
-tags: [Upcoming releases, Blow,Creampie,Solowork,Cowgirl,Cum,Huge Butt	]
+tags: [Censored, Blow,Creampie,Solowork,Cowgirl,Cum,Huge Butt	]
 maker: [Bi]
 actress: [ Yayoi Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yayoi Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="Zax2QR1woofqJ0p">
     <a href="javascript:;">
         <img src="/v/cjod408pl/cjod408pl.jpg" width="WIDTH" height="HEIGHT" alt="cjod408pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Zax2QR1woofqJ0p" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/o283z9ucmxqx" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

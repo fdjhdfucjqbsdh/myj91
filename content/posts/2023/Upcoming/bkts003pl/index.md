@@ -3,9 +3,9 @@ author: j91
 title: BKTS-003 Big Tits Pregnant Naked Club Sarasa Aino
 
 url: /v/bkts003pl
-date: 1970-12-22T02:08:00Z
+date: 2023-12-22T02:08:00Z
 image: "bkts003pl.jpg"
-tags: [Upcoming releases,Restraint,Solowork,Big Tits,Facials,School Swimsuit,Deep Throating	 ]
+tags: [Censored,Restraint,Solowork,Big Tits,Facials,School Swimsuit,Deep Throating	 ]
 maker: [Toyohiko]
 actress: [ Aino Sarasa ]
 ---
@@ -13,13 +13,13 @@ actress: [ Aino Sarasa ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="1LMkoe8mJjCeADy">
     <a href="javascript:;">
         <img src="/v/bkts003pl/bkts003pl.jpg" width="WIDTH" height="HEIGHT" alt="bkts003pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Aino Sarasa ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/1LMkoe8mJjCeADy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ab9k7cvsgrsh" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Aino Sarasa ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

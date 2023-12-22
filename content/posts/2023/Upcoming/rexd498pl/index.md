@@ -3,9 +3,9 @@ author: j91
 title: REXD-498 Beautiful Journalist, The Woman Who Knew Too Much 2 Mao Hamasaki
 
 url: /v/rexd498pl
-date: 1970-12-22T02:09:00Z
+date: 2023-12-22T02:09:00Z
 image: "rexd498pl.jpg"
-tags: [Upcoming releases,Blow,Creampie,3P, 4P,Solowork,Big Tits,Cuckold	 ]
+tags: [Censored,Blow,Creampie,3P, 4P,Solowork,Big Tits,Cuckold	 ]
 maker: [Reddo]
 actress: [Hamasaki Mao  ]
 ---
@@ -13,13 +13,13 @@ actress: [Hamasaki Mao  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="drA4MXG6jOukdqV">
     <a href="javascript:;">
         <img src="/v/rexd498pl/rexd498pl.jpg" width="WIDTH" height="HEIGHT" alt="rexd498pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Hamasaki Mao  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/drA4MXG6jOukdqV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lu3n5wfcedl2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Hamasaki Mao  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

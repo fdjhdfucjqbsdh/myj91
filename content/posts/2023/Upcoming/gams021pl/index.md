@@ -3,9 +3,9 @@ author: j91
 title: GAMS-021 Celebrity Wife Hungry For Sex Reika Toda
 
 url: /v/gams021pl
-date: 1970-12-22T02:08:00Z
+date: 2023-12-22T02:08:00Z
 image: "gams021pl.jpg"
-tags: [Upcoming releases, Creampie,Solowork,Masturbation,Married Woman,Nasty, Hardcore,Slender	]
+tags: [Censored, Creampie,Solowork,Masturbation,Married Woman,Nasty, Hardcore,Slender	]
 maker: [Toyohiko]
 actress: [Toda Reika ]
 ---
@@ -13,13 +13,13 @@ actress: [Toda Reika ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="882mxQmZB9foawB">
     <a href="javascript:;">
         <img src="/v/gams021pl/gams021pl.jpg" width="WIDTH" height="HEIGHT" alt="gams021pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Toda Reika ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/882mxQmZB9foawB" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ygh2j3tenup1" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Toda Reika ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

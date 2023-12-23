@@ -13,7 +13,7 @@ actress: [ Fujiki Sae ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="xXa9AO2ymWhkKqm">
+<div class="video" data-videoid="Q1wZpzojZVU00MD">
     <a href="javascript:;">
         <img src="/v/nsfs243pl/nsfs243pl.jpg" width="WIDTH" height="HEIGHT" alt="nsfs243pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Fujiki Sae ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/xXa9AO2ymWhkKqm" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/Q1wZpzojZVU00MD" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/9teee4meiw55" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
@@ -44,7 +44,7 @@ actress: [ Fujiki Sae ]
 	      <br>
 <div class="buttons">
 <p><a href="https://filelions.site/f/i1osk8ju71q9" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://filemoon.sx/d/z4osx6xf5iuf" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filemoon.sx/d/izopy6o8686f" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

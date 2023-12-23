@@ -3,9 +3,9 @@ author: j91
 title: MVG-075 Bondage School Mei Satsuki
 
 url: /v/mvg075pl
-date: 1970-12-23T01:55:00Z
+date: 2023-12-23T01:55:00Z
 image: "mvg075pl.jpg"
-tags: [Upcoming releases, Solowork,School Girls,Nasty, Hardcore,Shibari,Submissive Woman	]
+tags: [Censored, Solowork,School Girls,Nasty, Hardcore,Shibari,Submissive Woman	]
 maker: [ Glory Quest  ]
 actress: [ Satsuki Mei ]
 ---
@@ -13,13 +13,13 @@ actress: [ Satsuki Mei ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="e0ke8PpeRpiY68y">
     <a href="javascript:;">
         <img src="/v/mvg075pl/mvg075pl.jpg" width="WIDTH" height="HEIGHT" alt="mvg075pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Satsuki Mei ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/e0ke8PpeRpiY68y" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/m30ym8tfazsd" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Satsuki Mei ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-130 Sweaty Closed Room Sexual Intercourse Filled With Hot Air And Sighs That Can Not Escape As Much As Possible Ai Sayama
+title: JUFE-135 Rookie Gcup Active International Cabin Attendant Ayane Sezaki AV Debut At The End Of 20's 30th Anniversary ...
 
-url: /v/jufe130pl
+url: /was/jufe135pl
 date: 2020-01-25T02:00:00Z
-image: "jufe130pl.jpg"
-tags: [Old Releases,Censored, Creampie,Solowork,Big Tits,Married Woman,BBW,Sweat	]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+image: "jufe135pl.jpg"
+tags: [Old Releases,Censored, Big tits, Creampie, Debut Production, Squirting, Stewardess]
+maker: [Fitch]
+actress: [Sezaki Ayane ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="WXlD2gezBRUbOmO">
+<div class="video" data-videoid="eYBkM7zlDjIYg69">
     <a href="javascript:;">
-        <img src="/v/jufe130pl/jufe130pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe130pl.mp4" loading="lazy">
+        <img src="/was/jufe135pl/jufe135pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe135pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/WXlD2gezBRUbOmO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/eYBkM7zlDjIYg69" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/t9b8o57wrq6o" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/ccape36oymvi" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

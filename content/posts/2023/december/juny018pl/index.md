@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-130 Sweaty Closed Room Sexual Intercourse Filled With Hot Air And Sighs That Can Not Escape As Much As Possible Ai Sayama
+title: JUNY-018 With A Beautiful Face, Buttocks And Thighs Are Super Heavyweight! Frustrated American Wife JUNE LOVEJOY AV Debut Who Wants To Be Blamed Hard! June Lovejoy
 
-url: /v/jufe130pl
-date: 2020-01-25T02:00:00Z
-image: "jufe130pl.jpg"
-tags: [Old Releases,Censored, Creampie,Solowork,Big Tits,Married Woman,BBW,Sweat	]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+url: /was/juny018pl
+date: 2020-01-25T02:02:00Z
+image: "juny018pl.jpg"
+tags: [Old Releases,Censored, BBW, Creampie, Debut Production, Huge Butt, White Actress]
+maker: [Fitch]
+actress: [June Lovejoy ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="WXlD2gezBRUbOmO">
+<div class="video" data-videoid="QWdeGP9g3PI8vM">
     <a href="javascript:;">
-        <img src="/v/jufe130pl/jufe130pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe130pl.mp4" loading="lazy">
+        <img src="/was/juny018pl/juny018pl.jpg" width="WIDTH" height="HEIGHT" alt="juny018pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/WXlD2gezBRUbOmO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/QWdeGP9g3PI8vM" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/t9b8o57wrq6o" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/bsh7dmgfqcxx" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

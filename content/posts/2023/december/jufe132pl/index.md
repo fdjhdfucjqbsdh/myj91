@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-130 Sweaty Closed Room Sexual Intercourse Filled With Hot Air And Sighs That Can Not Escape As Much As Possible Ai Sayama
+title: JUFE-132 5 Days Training Record Aki Ellie Who Committed A Beautiful Wife's Older Sister With Big Tits While The Wife Was Not At Home On Employee Trip
 
-url: /v/jufe130pl
+url: /was/jufe132pl
 date: 2020-01-25T02:00:00Z
-image: "jufe130pl.jpg"
-tags: [Old Releases,Censored, Creampie,Solowork,Big Tits,Married Woman,BBW,Sweat	]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+image: "jufe132pl.jpg"
+tags: [Old Releases,Censored,Big tits, Creampie, Cuckold, Married Woman, Training ]
+maker: [Fitch]
+actress: [ Akira Eri]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="WXlD2gezBRUbOmO">
+<div class="video" data-videoid="LWK2mwz3rVf7w4">
     <a href="javascript:;">
-        <img src="/v/jufe130pl/jufe130pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe130pl.mp4" loading="lazy">
+        <img src="/was/jufe132pl/jufe132pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe132pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/WXlD2gezBRUbOmO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/LWK2mwz3rVf7w4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/t9b8o57wrq6o" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/4no4ru7yiyeu" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

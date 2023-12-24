@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-130 Sweaty Closed Room Sexual Intercourse Filled With Hot Air And Sighs That Can Not Escape As Much As Possible Ai Sayama
+title: JUFE-129 Sucking Saliva Slut Who Licks Closely And Licks Minami Nagata
 
-url: /v/jufe130pl
+url: /was/jufe129pl
 date: 2020-01-25T02:00:00Z
-image: "jufe130pl.jpg"
-tags: [Old Releases,Censored, Creampie,Solowork,Big Tits,Married Woman,BBW,Sweat	]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+image: "jufe129pl.jpg"
+tags: [Old Releases,Censored, Anchorwoman, Big tits, Creampie, Kiss, Slut]
+maker: [Fitch]
+actress: [ Nagareda Minami]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="WXlD2gezBRUbOmO">
+<div class="video" data-videoid="q39PM2OVzMUzmKz">
     <a href="javascript:;">
-        <img src="/v/jufe130pl/jufe130pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe130pl.mp4" loading="lazy">
+        <img src="/was/jufe129pl/jufe129pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe129pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/WXlD2gezBRUbOmO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/q39PM2OVzMUzmKz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/t9b8o57wrq6o" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/xc9fnjujy1bk" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

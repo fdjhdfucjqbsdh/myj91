@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-130 Sweaty Closed Room Sexual Intercourse Filled With Hot Air And Sighs That Can Not Escape As Much As Possible Ai Sayama
+title: JUFE-138 The Story Of The Three Days That The President Was Tempted By The Wife Of The President Of Bakushiri While Absent On A Business Trip ●
 
-url: /v/jufe130pl
+url: /was/jufe138pl
 date: 2020-01-25T02:00:00Z
-image: "jufe130pl.jpg"
-tags: [Old Releases,Censored, Creampie,Solowork,Big Tits,Married Woman,BBW,Sweat	]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+image: "jufe138pl.jpg"
+tags: [Old Releases,Censored, Cowgirl, Creampie, Huge Butt, Married Woman, Slut]
+maker: [Fitch]
+actress: [ Kashiwagi Kurumi]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="WXlD2gezBRUbOmO">
+<div class="video" data-videoid="xg4BrGbDMWtw1j">
     <a href="javascript:;">
-        <img src="/v/jufe130pl/jufe130pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe130pl.mp4" loading="lazy">
+        <img src="/was/jufe138pl/jufe138pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe138pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/WXlD2gezBRUbOmO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/xg4BrGbDMWtw1j" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/t9b8o57wrq6o" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/id17jl4k1rla" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

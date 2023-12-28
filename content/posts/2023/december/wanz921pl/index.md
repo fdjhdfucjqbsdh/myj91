@@ -1,21 +1,21 @@
 ---
 author: j91
-title: WANZ-923 Pregnancy OK! ! Big Tits Jariman Affair Married Ai Sayama
+title: WANZ-921 If It Gets Acme, The Pursuit Punishment Piston Is Made! Nasty Maid Demon Squid Breast Urinal Training Kiritani Festival
 
-url: /v/wanz923pl
+url: /was/wanz921pl
 date: 2020-01-25T13:00:00Z
-image: "wanz923pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Big Tits,Slut,Affair,Huge Butt	 ]
-maker: [ WANZ FACTORY  ]
-actress: [Sayama Ai]
+image: "wanz921pl.jpg"
+tags: [Old Releases,Censored, Big tits, Creampie, Maid, Restraint, Training]
+maker: [WANZ FACTORY]
+actress: [Kiritani Matsuri ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XoKegRg9kKcDqgr">
+<div class="video" data-videoid="7Px7bGGzOjuJQ2">
     <a href="javascript:;">
-        <img src="/v/wanz923pl/wanz923pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz923pl.mp4" loading="lazy">
+        <img src="/was/wanz921pl/wanz921pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz921pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XoKegRg9kKcDqgr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/7Px7bGGzOjuJQ2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/84ije4zupl77" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/euhihffhs4a1" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

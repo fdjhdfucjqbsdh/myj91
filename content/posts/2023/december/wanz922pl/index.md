@@ -1,21 +1,21 @@
 ---
 author: j91
-title: WANZ-923 Pregnancy OK! ! Big Tits Jariman Affair Married Ai Sayama
+title: WANZ-922 Deprived Of Movement And Demon Squid Sexual Feeling Stimulation Creampie Unrestricted Acme Confinement Oil Massage Kanon Kanon
 
-url: /v/wanz923pl
+url: /was/wanz922pl
 date: 2020-01-25T13:00:00Z
-image: "wanz923pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Big Tits,Slut,Affair,Huge Butt	 ]
-maker: [ WANZ FACTORY  ]
-actress: [Sayama Ai]
+image: "wanz922pl.jpg"
+tags: [Old Releases,Censored, Beauty Shop, Confinement, Creampie, Restraint, Training]
+maker: [WANZ FACTORY]
+actress: [ Kanade Kanon]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XoKegRg9kKcDqgr">
+<div class="video" data-videoid="MzolrvggRbhmaVe">
     <a href="javascript:;">
-        <img src="/v/wanz923pl/wanz923pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz923pl.mp4" loading="lazy">
+        <img src="/was/wanz922pl/wanz922pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz922pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XoKegRg9kKcDqgr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/MzolrvggRbhmaVe" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/84ije4zupl77" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/vgq98k4t63p9" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

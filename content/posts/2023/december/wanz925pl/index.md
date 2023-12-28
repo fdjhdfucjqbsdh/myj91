@@ -1,21 +1,21 @@
 ---
 author: j91
-title: WANZ-923 Pregnancy OK! ! Big Tits Jariman Affair Married Ai Sayama
+title: WANZ-925 The Condom Is Torn And It's A Raw Fuck! Pies Many Times With A Super-accelerated Piston! Nana Matsumoto
 
-url: /v/wanz923pl
+url: /was/wanz925pl
 date: 2020-01-25T13:00:00Z
-image: "wanz923pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Big Tits,Slut,Affair,Huge Butt	 ]
-maker: [ WANZ FACTORY  ]
-actress: [Sayama Ai]
+image: "wanz925pl.jpg"
+tags: [Old Releases,Censored, Creampie, Solowork, School Girls, Big Tits, Titty Fuck, Virgin Man	]
+maker: [WANZ FACTORY]
+actress: [ Matsumoto Nanami]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XoKegRg9kKcDqgr">
+<div class="video" data-videoid="vQmjDlBy3wUayo">
     <a href="javascript:;">
-        <img src="/v/wanz923pl/wanz923pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz923pl.mp4" loading="lazy">
+        <img src="/was/wanz925pl/wanz925pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz925pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XoKegRg9kKcDqgr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/vQmjDlBy3wUayo" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/84ije4zupl77" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/0qqbdsmqe5ct" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

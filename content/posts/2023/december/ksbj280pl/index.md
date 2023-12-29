@@ -3,9 +3,9 @@ author: j91
 title: KSBJ-280 Shiori Tsukada, A Busty Stepmother Who Steals The Virginity Of Her Husband's Stepchild And Asks For Creampie Over And Over Again
 
 url: /v/ksbj280pl
-date: 1970-12-30T01:50:00Z
+date: 2023-12-29T01:19:00Z
 image: "ksbj280pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Big Tits, Married Woman, Slut, Stepmother	]
+tags: [Censored, Creampie, Solowork, Big Tits, Married Woman, Slut, Stepmother	]
 maker: [ KSB Kikaku - Emmanuelle  ]
 actress: [ Tsukada Shiori ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tsukada Shiori ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="GGXr8kzPgAC1rWD">
     <a href="javascript:;">
         <img src="/v/ksbj280pl/ksbj280pl.jpg" width="WIDTH" height="HEIGHT" alt="ksbj280pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tsukada Shiori ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/GGXr8kzPgAC1rWD" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/aqb7xk05019u" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tsukada Shiori ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://filelions.site/f/mzadoljhevuv" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://filemoon.sx/d/ueoleeiyxllh" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

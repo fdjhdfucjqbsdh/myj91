@@ -3,9 +3,9 @@ author: j91
 title: CAWD-602 She Has A Big Smile And A Great Orgasm! Miraculous Constricted Amateur Office Lady Aina Mizuki's First Experience Mecha X 2 Climax 3 Productions
 
 url: /v/cawd602pl
-date: 1970-12-29T01:50:00Z
+date: 2023-12-29T01:50:00Z
 image: "cawd602pl.jpg"
-tags: [Upcoming releases, 3P, 4P, Solowork, Beautiful Girl, Nasty, Hardcore, Slender, Male Squirting	]
+tags: [Censored, 3P, 4P, Solowork, Beautiful Girl, Nasty, Hardcore, Slender, Male Squirting	]
 maker: [Kawaii]
 actress: [ Mitsuki Aina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Mitsuki Aina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="7Rb1e0eMPLTVPL">
     <a href="javascript:;">
         <img src="/v/cawd602pl/cawd602pl.jpg" width="WIDTH" height="HEIGHT" alt="cawd602pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mitsuki Aina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7Rb1e0eMPLTVPL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/w98nqzyn6jm9" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mitsuki Aina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

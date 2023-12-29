@@ -3,9 +3,9 @@ author: j91
 title: MIFD-463 Love Virgin I Want To Fall In Love, Go On A Date, Have Sex...Short Cut Beautiful Girl AVDEBUT! ! Lucia Kurona, A Girl Who Has Had A Boyfriend For 18 Years
 
 url: /v/mifd463pl
-date: 1970-12-29T01:55:00Z
+date: 2023-12-29T01:55:00Z
 image: "mifd463pl.jpg"
-tags: [Upcoming releases, Blow, 3P, 4P, Solowork, Debut Production, Beautiful Girl, Facials	]
+tags: [Censored, Blow, 3P, 4P, Solowork, Debut Production, Beautiful Girl, Facials	]
 maker: [MOODYZ]
 actress: [ Kurona Rushia ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kurona Rushia ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="8KbzqPPLVduozyz">
     <a href="javascript:;">
         <img src="/v/mifd463pl/mifd463pl.jpg" width="WIDTH" height="HEIGHT" alt="mifd463pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kurona Rushia ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/8KbzqPPLVduozyz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/w3whql1x4aap" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kurona Rushia ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

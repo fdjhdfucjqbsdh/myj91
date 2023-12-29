@@ -3,9 +3,9 @@ author: j91
 title: MIDV-544 A Unique Newcomer With A Naughty Body, Yamo-chan's Perverted Legend Begins In Her AV Debut! ! Yamori Wakana
 
 url: /v/midv544pl
-date: 1970-12-29T01:55:00Z
+date: 2023-12-29T01:55:00Z
 image: "midv544pl.jpg"
-tags: [Upcoming releases, Blow,3P, 4P,Solowork,Debut Production,Beautiful Girl,Breasts	]
+tags: [Censored, Blow,3P, 4P,Solowork,Debut Production,Beautiful Girl,Breasts	]
 maker: [MOODYZ]
 actress: [Hachimori Wakana  ]
 ---
@@ -13,13 +13,13 @@ actress: [Hachimori Wakana  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="oWpVqprVopcJkyz">
     <a href="javascript:;">
         <img src="/v/midv544pl/midv544pl.jpg" width="WIDTH" height="HEIGHT" alt="midv544pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Hachimori Wakana  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/oWpVqprVopcJkyz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/d6p609lffex5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Hachimori Wakana  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MIDV-554 Miyu, The Senior I Admire, Is Tied Up By A Strong Swimming Club Member... Miyu Oguri
 
 url: /v/midv554pl
-date: 1970-12-29T01:55:00Z
+date: 2023-12-29T01:55:00Z
 image: "midv554pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Solowork, Nasty, Hardcore, School Swimsuit, Cuckold	]
+tags: [Censored, Creampie, 3P, 4P, Solowork, Nasty, Hardcore, School Swimsuit, Cuckold	]
 maker: [MOODYZ]
 actress: [ Oguri Miyu ]
 ---
@@ -13,13 +13,13 @@ actress: [ Oguri Miyu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="mwbZkkVZ4OIG7V">
     <a href="javascript:;">
         <img src="/v/midv554pl/midv554pl.jpg" width="WIDTH" height="HEIGHT" alt="midv554pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Oguri Miyu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/mwbZkkVZ4OIG7V" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/03hnoxbhkc11" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Oguri Miyu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

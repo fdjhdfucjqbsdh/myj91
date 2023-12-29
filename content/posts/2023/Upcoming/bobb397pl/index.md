@@ -3,9 +3,9 @@ author: j91
 title: BOBB-397 Coming To BoinBB For The Boobs Alien! Thoroughly Enjoy The Legendary J Cup Super Breasts With The Ultimate Royal Breast Fetish Play! Boin “Maria Nagai” Box
 
 url: /v/bobb397pl
-date: 1970-12-29T01:29:00Z
+date: 2023-12-29T01:29:00Z
 image: "bobb397pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Big Tits, Titty Fuck, Busty Fetish, Ultra-Huge Tits	]
+tags: [Censored, Creampie, Solowork, Big Tits, Titty Fuck, Busty Fetish, Ultra-Huge Tits	]
 maker: [Abc- Mousou Zoku]
 actress: [ Kashiwagi Kurumi]
 ---
@@ -13,13 +13,13 @@ actress: [ Kashiwagi Kurumi]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="Y8mKV6jQKAUvM37">
     <a href="javascript:;">
         <img src="/v/bobb397pl/bobb397pl.jpg" width="WIDTH" height="HEIGHT" alt="bobb397pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kashiwagi Kurumi]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Y8mKV6jQKAUvM37" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/7bij2m1p38xn" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kashiwagi Kurumi]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

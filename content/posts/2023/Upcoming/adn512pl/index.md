@@ -3,9 +3,9 @@ author: j91
 title: ADN-512 My Fired Subordinate Continued To Rape My Wife In Front Of Me, And My Wife, Who Gave In To The Pleasure, Gradually Began To Feel It And Climaxed. Hikari Ninomiya
 
 url: /v/adn512pl
-date: 1970-12-29T01:45:00Z
+date: 2023-12-29T01:45:00Z
 image: "adn512pl.jpg"
-tags: [Upcoming releases, Solowork, Married Woman, Cuckold	]
+tags: [Censored, Solowork, Married Woman, Cuckold	]
 maker: [Attackers]
 actress: [ Ninomiya Hikari ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ninomiya Hikari ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="DZ00WO0Qr7ukZ6A">
     <a href="javascript:;">
         <img src="/v/adn512pl/adn512pl.jpg" width="WIDTH" height="HEIGHT" alt="adn512pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ninomiya Hikari ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DZ00WO0Qr7ukZ6A" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/po01l0o0cf74" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ninomiya Hikari ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: NPJS-002 Want To Have Sex With A Super Nice Tall Lounge Beauty That Everyone Looks Back On. She Gets Dumped By Her Boyfriend And Is Consoled With Champagne. Her Legs Are Jerked Off, She's Crazy, And She's Heartbroken And Has A Lucky Creampie.
 
 url: /v/npjs002pl
-date: 1970-12-29T01:09:00Z
+date: 2023-12-29T01:09:00Z
 image: "npjs002pl.jpg"
-tags: [Upcoming releases, Creampie,Older Sister,Amateur,Big Tits,Slender	]
+tags: [Censored, Creampie,Older Sister,Amateur,Big Tits,Slender	]
 maker: [Nampa JAPAN]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="DZygrLqw8mFkrpq">
     <a href="javascript:;">
         <img src="/v/npjs002pl/npjs002pl.jpg" width="WIDTH" height="HEIGHT" alt="npjs002pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DZygrLqw8mFkrpq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ukmcwjy6dpfo" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

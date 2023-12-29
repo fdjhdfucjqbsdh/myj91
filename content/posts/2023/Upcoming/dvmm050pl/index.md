@@ -3,9 +3,9 @@ author: j91
 title: DVMM-050 Forbidden Love That Begins With A Kiss. A Record Of A Month Of Kissing And Creampie Sex With My Cousin Who Came To Tokyo For Job Hunting. Ka Kotono.
 
 url: /v/dvmm050pl
-date: 1970-12-29T01:25:00Z
+date: 2023-12-29T01:25:00Z
 image: "dvmm050pl.jpg"
-tags: [Upcoming releases,Creampie,Solowork,Beautiful Girl,Drama,Kiss	 ]
+tags: [Censored,Creampie,Solowork,Beautiful Girl,Drama,Kiss	 ]
 maker: [Deeps]
 actress: [Kotone Hana  ]
 ---
@@ -13,13 +13,13 @@ actress: [Kotone Hana  ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="OYRdwama4ktZblg">
     <a href="javascript:;">
         <img src="/v/dvmm050pl/dvmm050pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm050pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Kotone Hana  ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/OYRdwama4ktZblg" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/a8gk4no8g2oi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Kotone Hana  ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

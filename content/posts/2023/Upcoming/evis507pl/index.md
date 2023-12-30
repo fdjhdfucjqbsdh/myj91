@@ -3,9 +3,9 @@ author: j91
 title: EVIS-507 Telescopic Acme Nipple Masturbation
 
 url: /v/evis507pl
-date: 1970-12-30T01:30:00Z
+date: 2023-12-30T01:30:00Z
 image: "evis507pl.jpg"
-tags: [Upcoming releases, Masturbation, Other Fetish, Big Tits, Breasts, Tits	]
+tags: [Censored, Masturbation, Other Fetish, Big Tits, Breasts, Tits	]
 maker: [ Ebisusan - Mousou Zoku  ]
 actress: [ Mashiro An,  Akari Tomoka,  NIMO ,Hoshino Reia,  Tsukishita Airi,  Natsuhi Kaze,  Nagano Sayaka,  Hanai Shizuku]
 ---
@@ -13,13 +13,13 @@ actress: [ Mashiro An,  Akari Tomoka,  NIMO ,Hoshino Reia,  Tsukishita Airi,  Na
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="YLl1am98ykcLGx">
     <a href="javascript:;">
         <img src="/v/evis507pl/evis507pl.jpg" width="WIDTH" height="HEIGHT" alt="evis507pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mashiro An,  Akari Tomoka,  NIMO ,Hoshino Reia,  Tsukishita Airi,  Na
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/YLl1am98ykcLGx" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/viu2a0zixfkg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mashiro An,  Akari Tomoka,  NIMO ,Hoshino Reia,  Tsukishita Airi,  Na
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

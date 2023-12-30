@@ -3,9 +3,9 @@ author: j91
 title: PKPR-022 18-year-old White-skinned, Beautiful-breasted, Sullen And Erotic Girl, Sana Kirishima
 
 url: /v/pkpr022pl
-date: 1970-12-30T01:50:00Z
+date: 2023-12-30T01:50:00Z
 image: "pkpr022pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, School Girls, POV, Breasts	]
+tags: [Censored, Creampie, Solowork, School Girls, POV, Breasts	]
 maker: [ Pakopakodan To Yukaina Nakamatachi  ]
 actress: [ Kirishima Sana ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kirishima Sana ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="DXKx21kB9qukPBr">
     <a href="javascript:;">
         <img src="/v/pkpr022pl/pkpr022pl.jpg" width="WIDTH" height="HEIGHT" alt="pkpr022pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kirishima Sana ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DXKx21kB9qukPBr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/icf49jauyw6u" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kirishima Sana ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

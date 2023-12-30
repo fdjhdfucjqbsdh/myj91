@@ -3,9 +3,9 @@ author: j91
 title: FJIN-003 A Genderless Amateur College Student, Rashi Asuka, Who Is Extremely Popular Among The Same Sex, Was Fucked Raw At A Tennis Training Camp Resort, And She Was More Sensitive Than I Imagined And Started To Cum Repeatedly...Rashi Asuka
 
 url: /v/fjin003pl
-date: 1970-12-30T01:30:00Z
+date: 2023-12-30T01:30:00Z
 image: "fjin003pl.jpg"
-tags: [Upcoming releases, Creampie, Amateur, Slender, Female College Student, Club Activities - Manager	]
+tags: [Censored, Creampie, Amateur, Slender, Female College Student, Club Activities - Manager	]
 maker: [ FunCity - Mousozoku  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="dgQ9mDGYr8HkVGG">
     <a href="javascript:;">
         <img src="/v/fjin003pl/fjin003pl.jpg" width="WIDTH" height="HEIGHT" alt="fjin003pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/dgQ9mDGYr8HkVGG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/02l8fjmk835l" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

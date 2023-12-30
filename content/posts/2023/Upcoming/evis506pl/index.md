@@ -3,9 +3,9 @@ author: j91
 title: EVIS-506 Vacuum Tongue Blowjob Nose Licking Lesbian
 
 url: /v/evis506pl
-date: 1970-12-30T01:30:00Z
+date: 2023-12-30T01:30:00Z
 image: "evis506pl.jpg"
-tags: [Upcoming releases, Lesbian, Other Fetish, Older Sister, Lesbian Kiss, Kiss	]
+tags: [Censored, Lesbian, Other Fetish, Older Sister, Lesbian Kiss, Kiss	]
 maker: [Ebisusan - Mousou Zoku   ]
 actress: [ Amano Koyuki, Hoshizora Moa, Akari Tomoka, Miyazawa Chiharu, Tokunaga Rei, Momoi Momo, Tsukishita Airi, Mochizuki Ayaka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Amano Koyuki, Hoshizora Moa, Akari Tomoka, Miyazawa Chiharu, Tokunaga
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="LeLYG94YrbFRlBk">
     <a href="javascript:;">
         <img src="/v/evis506pl/evis506pl.jpg" width="WIDTH" height="HEIGHT" alt="evis506pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Amano Koyuki, Hoshizora Moa, Akari Tomoka, Miyazawa Chiharu, Tokunaga
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/LeLYG94YrbFRlBk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/3pqbq3a7tvw3" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Amano Koyuki, Hoshizora Moa, Akari Tomoka, Miyazawa Chiharu, Tokunaga
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MMPB-022 Happy New Year! I Want To Disturb The Beauty In Japanese Clothes! 15 People
 
 url: /v/mmpb022pl
-date: 1970-12-30T01:30:00Z
+date: 2023-12-30T01:30:00Z
 image: "mmpb022pl.jpg"
-tags: [Upcoming releases, Other Fetish, Planning, Breasts, 4HR+, Kimono, Mourning	]
+tags: [Censored, Other Fetish, Planning, Breasts, 4HR+, Kimono, Mourning	]
 maker: [ Momotarou Eizou Shuppan  ]
 actress: [Shinoda Yuu, AIKA, KAORI, Sena Hikari, Kurata Mao, Sasaki Aki, Sekine Nami, Kawakita Mai, Aimi Rika, Melody Hiina Marks ]
 ---
@@ -13,13 +13,13 @@ actress: [Shinoda Yuu, AIKA, KAORI, Sena Hikari, Kurata Mao, Sasaki Aki, Sekine 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="BPjlMPbogLUVLX">
     <a href="javascript:;">
         <img src="/v/mmpb022pl/mmpb022pl.jpg" width="WIDTH" height="HEIGHT" alt="mmpb022pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Shinoda Yuu, AIKA, KAORI, Sena Hikari, Kurata Mao, Sasaki Aki, Sekine 
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/BPjlMPbogLUVLX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/1njmejzp27k0" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Shinoda Yuu, AIKA, KAORI, Sena Hikari, Kurata Mao, Sasaki Aki, Sekine 
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

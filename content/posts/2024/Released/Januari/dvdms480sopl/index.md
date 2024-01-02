@@ -13,7 +13,7 @@ actress: [ Arihana Moe, Fukada Mio, Koiro Mugi ,Kanno Yona, Hoshino Mio ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="1zlomARQmzfe3KP">
+<div class="video" data-videoid="9lDeooPxJasaQkP">
     <a href="javascript:;">
         <img src="/was/dvdms480sopl/dvdms480sopl.jpg" width="WIDTH" height="HEIGHT" alt="dvdms480sopl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Arihana Moe, Fukada Mio, Koiro Mugi ,Kanno Yona, Hoshino Mio ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/1zlomARQmzfe3KP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/9lDeooPxJasaQkP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ Arihana Moe, Fukada Mio, Koiro Mugi ,Kanno Yona, Hoshino Mio ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/wbt2y2jqhzjb" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/8g377ghtl0i5" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

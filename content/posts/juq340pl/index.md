@@ -31,7 +31,8 @@ actress: [Hayama Sayuri 	]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Z3gGdWygWwtq2Rw"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/Z3gGdWygWwtq2Rw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/hibc8pp2agt2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -40,7 +41,8 @@ actress: [Hayama Sayuri 	]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://voe.sx/f6qxisty5dx0"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></div>
+<p><a href="https://lylxan.com/tpzfb8xol6hu" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> ZH</button></a></p>
+<p><a href="https://filemoon.sx/d/wuafn3tecbly" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

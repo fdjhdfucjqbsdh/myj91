@@ -3,9 +3,9 @@ author: j91
 title: BBAN-465 Please. Please Train Me... Real Masochist Slave Private Training Lesbian THE HARD Tsubame Ameyori Rui Otokoto
 
 url: /v/bban465pl
-date: 1970-01-05T01:25:00Z
+date: 2024-01-05T01:25:00Z
 image: "bban465pl.jpg"
-tags: [Upcoming releases, SM, Lesbian, Shibari, Slender, Lesbian Kiss	]
+tags: [Censored, SM, Lesbian, Shibari, Slender, Lesbian Kiss	]
 maker: [Bibian]
 actress: [ Otogoto Rui, Amai Tsubame ]
 ---
@@ -13,13 +13,13 @@ actress: [ Otogoto Rui, Amai Tsubame ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="gq3MY6Q4ygfqeWk">
     <a href="javascript:;">
         <img src="/v/bban465pl/bban465pl.jpg" width="WIDTH" height="HEIGHT" alt="bban465pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Otogoto Rui, Amai Tsubame ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/gq3MY6Q4ygfqeWk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jhn03jn1utod" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Otogoto Rui, Amai Tsubame ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

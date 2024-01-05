@@ -3,9 +3,9 @@ author: j91
 title: DASS-309 Asshole Masako Rina
 
 url: /v/dass309pl
-date: 1970-01-05T01:40:00Z
+date: 2024-01-05T01:40:00Z
 image: "dass309pl.jpg"
-tags: [Upcoming releases, Anal, 3P, 4P, Solowork, Girl, Beautiful Girl, Mini	]
+tags: [Censored, Anal, 3P, 4P, Solowork, Girl, Beautiful Girl, Mini	]
 maker: [Das !]
 actress: [ Masako Rina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Masako Rina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="d7Kmx17wAetkxzq">
     <a href="javascript:;">
         <img src="/v/dass309pl/dass309pl.jpg" width="WIDTH" height="HEIGHT" alt="dass309pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Masako Rina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/d7Kmx17wAetkxzq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/4sugdclvqq8a" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Masako Rina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

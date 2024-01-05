@@ -3,9 +3,9 @@ author: j91
 title: DASS-310 An Adulterous Addiction That Swamps Women And Makes Them Unable To Break Free Once They Experience It. Sumire Kurokawa
 
 url: /v/dass310pl
-date: 1970-01-05T01:40:00Z
+date: 2024-01-05T01:40:00Z
 image: "dass310pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Affair, Slender	]
+tags: [Censored, Creampie, Solowork, Married Woman, Affair, Slender	]
 maker: [Das !]
 actress: [ Kurokawa Sumire]
 ---
@@ -13,13 +13,13 @@ actress: [ Kurokawa Sumire]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="o26eVl4lmeFdyX">
     <a href="javascript:;">
         <img src="/v/dass310pl/dass310pl.jpg" width="WIDTH" height="HEIGHT" alt="dass310pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kurokawa Sumire]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/o26eVl4lmeFdyX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/khyb436twk4f" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kurokawa Sumire]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

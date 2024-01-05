@@ -3,9 +3,9 @@ author: j91
 title: BBAN-466 Ruisa Miyakozuki's Lesbianism Is Lifted. A Childhood Friend Suddenly Comes Out As A Lesbian! The True Nature Of The Masochist Awakens As He Cums Continuously With Vulgar And Messy Yuri SEX!
 
 url: /v/bban466pl
-date: 1970-01-05T01:25:00Z
+date: 2024-01-05T01:25:00Z
 image: "bban466pl.jpg"
-tags: [Upcoming releases, Lesbian, Big Tits, Butt, Kiss	]
+tags: [Censored, Lesbian, Big Tits, Butt, Kiss	]
 maker: [Bibian]
 actress: [ Misono Waka, Totsuki Ruisa]
 ---
@@ -13,13 +13,13 @@ actress: [ Misono Waka, Totsuki Ruisa]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="JbmYo8k9brFo1X">
     <a href="javascript:;">
         <img src="/v/bban466pl/bban466pl.jpg" width="WIDTH" height="HEIGHT" alt="bban466pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misono Waka, Totsuki Ruisa]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/JbmYo8k9brFo1X" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/nnuduhglhsch" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misono Waka, Totsuki Ruisa]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

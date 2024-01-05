@@ -3,9 +3,9 @@ author: j91
 title: JUQ-529 While My Wife Was Pregnant, I Was Forbidden To Even Masturbate, So I Ended Up Having Inseminated Sex With My Mother-in-law, Yuki, Who Had Come To Tokyo Many Times... Yuki Yoshizawa
 
 url: /v/juq529pl
-date: 1970-01-05T01:45:00Z
+date: 2024-01-05T01:45:00Z
 image: "juq529pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Breasts, Mature Woman, Stepmother	]
+tags: [Censored, Creampie, Solowork, Married Woman, Breasts, Mature Woman, Stepmother	]
 maker: [Madonna]
 actress: [ Yoshizawa Yuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yoshizawa Yuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="pM86RrdK8eSr4gY">
     <a href="javascript:;">
         <img src="/v/juq529pl/juq529pl.jpg" width="WIDTH" height="HEIGHT" alt="juq529pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yoshizawa Yuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/pM86RrdK8eSr4gY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/0ksw86yghd99" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yoshizawa Yuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

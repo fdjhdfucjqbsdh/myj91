@@ -3,9 +3,9 @@ author: j91
 title: JUQ-506 I, A College Student, Woke Up To Sex After Being Fucked By My Aunt Who Fucks Her Husband Every Night...I Forgot Everything And Got Addicted To Continuous Creampie Copulation. Hojo Asahi
 
 url: /v/juq506pl
-date: 1970-01-05T01:45:00Z
+date: 2024-01-05T01:45:00Z
 image: "juq506pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Cowgirl, Mature Woman, Sweat	]
+tags: [Censored, Creampie, Solowork, Married Woman, Cowgirl, Mature Woman, Sweat	]
 maker: [Madonna]
 actress: [ Houjou Maki]
 ---
@@ -13,13 +13,13 @@ actress: [ Houjou Maki]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="27QomL68eQTZ8vZ">
     <a href="javascript:;">
         <img src="/v/juq506pl/juq506pl.jpg" width="WIDTH" height="HEIGHT" alt="juq506pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Houjou Maki]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/27QomL68eQTZ8vZ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/v93ec7q547gr" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Houjou Maki]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: JUQ-527 “Perverted” Married Woman With A Gap, Part 3! ! Creampie Ban Released. For Five Days Without My Husband, I Was Ordered To Abstain Until The First Night, And My Sexual Father-in-law Trained Me Physically And Mentally. This Was An Unwanted Political Marriage, And My Father-in-law Was Targeting Me... Reno Kiyomi
 
 url: /v/juq527pl
-date: 1970-01-05T01:45:00Z
+date: 2024-01-05T01:45:00Z
 image: "juq527pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Affair, Mature Woman	]
+tags: [Censored, Creampie, Solowork, Married Woman, Affair, Mature Woman	]
 maker: [Madonna]
 actress: [ Kiyomi Reno ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kiyomi Reno ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="GJ78oa8RXksdBD">
     <a href="javascript:;">
         <img src="/v/juq527pl/juq527pl.jpg" width="WIDTH" height="HEIGHT" alt="juq527pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kiyomi Reno ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/GJ78oa8RXksdBD" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/1kecehw449a2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kiyomi Reno ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

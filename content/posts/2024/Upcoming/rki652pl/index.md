@@ -3,9 +3,9 @@ author: j91
 title: RKI-652 Beauty And The Beast ~Gal And Creepy Otaku~ A Beautiful Gal Who Was Captivated By The Thick Cock Of A Secretive And Boring Creepy Otaku Boy. I Can't Forget The Taste Of Dick, So Today I Impregnate And Have Creampie Sex With A Creepy Otaku! Rika Tsubaki
 
 url: /v/rki652pl
-date: 1970-01-05T01:20:00Z
+date: 2024-01-05T01:20:00Z
 image: "rki652pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, School Girls, Gal, Big Tits, Original Collaboration	]
+tags: [Censored, Creampie, Solowork, School Girls, Gal, Big Tits, Original Collaboration	]
 maker: [Rookie]
 actress: [ Tsubaki Rika]
 ---
@@ -13,13 +13,13 @@ actress: [ Tsubaki Rika]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="0pD7dD6arXcbJLw">
     <a href="javascript:;">
         <img src="/v/rki652pl/rki652pl.jpg" width="WIDTH" height="HEIGHT" alt="rki652pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tsubaki Rika]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/0pD7dD6arXcbJLw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/n6ztosfscwch" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tsubaki Rika]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: RKI-659 Stepmother Angel, Ejaculation Education That Gently Wraps Around Her Stepson. The Day When A Big-breasted Young Wife Who Was New To Sex Became The Best Mother To Serve Her Son... Waka Misono
 
 url: /v/rki659pl
-date: 1970-01-05T01:20:00Z
+date: 2024-01-05T01:20:00Z
 image: "rki659pl.jpg"
-tags: [Upcoming releases, Sailor Suit, Solowork, Big Tits, Titty Fuck, Bride, Young Wife, Incest	]
+tags: [Censored, Sailor Suit, Solowork, Big Tits, Titty Fuck, Bride, Young Wife, Incest	]
 maker: [Rookie]
 actress: [ Misono Waka]
 ---
@@ -13,13 +13,13 @@ actress: [ Misono Waka]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="l4zK0Pde3Rt7kwb">
     <a href="javascript:;">
         <img src="/v/rki659pl/rki659pl.jpg" width="WIDTH" height="HEIGHT" alt="rki659pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misono Waka]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/l4zK0Pde3Rt7kwb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/abhn53z4nyiz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misono Waka]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

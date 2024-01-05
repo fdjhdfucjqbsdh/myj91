@@ -3,9 +3,9 @@ author: j91
 title: IPZZ-179 I Want To Be Slutted And Squeezed By A Sweet Slutty Big Breasted Older Sister For 24 Hours In A Closed Hotel Room. An Astonishing 14 Shots! ? Azusa Hikari
 
 url: /v/ipzz179pl
-date: 1970-01-05T01:50:00Z
+date: 2024-01-05T01:50:00Z
 image: "ipzz179pl.jpg"
-tags: [Upcoming releases, Blow, Solowork, Big Tits, Slut,Kiss	]
+tags: [Censored, Blow, Solowork, Big Tits, Slut,Kiss	]
 maker: [IDEA POCKET]
 actress: [ Azusa Hikari ]
 ---
@@ -13,13 +13,13 @@ actress: [ Azusa Hikari ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="ZKbY6xyJ1xUgZG">
     <a href="javascript:;">
         <img src="/v/ipzz179pl/ipzz179pl.jpg" width="WIDTH" height="HEIGHT" alt="ipzz179pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Azusa Hikari ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/ZKbY6xyJ1xUgZG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/6wd4pkhfmz7t" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Azusa Hikari ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

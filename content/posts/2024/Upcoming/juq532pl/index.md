@@ -3,9 +3,9 @@ author: j91
 title: JUQ-532 Madonna 20th Anniversary! ! A Gorgeous Exclusive Co-starring Work! ! On A School Trip, I Shared A Room With Two Senior Female Teachers... 10 Shots In Total Over 2 Days And 1 Night, And I Was Ejaculated Over And Over Again Until Dawn.
 
 url: /v/juq532pl
-date: 1970-01-05T01:45:00Z
+date: 2024-01-05T01:45:00Z
 image: "juq532pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Pantyhose, Big Tits, Married Woman, Mature Woman	]
+tags: [Censored, Creampie, 3P, 4P, Pantyhose, Big Tits, Married Woman, Mature Woman	]
 maker: [Madonna]
 actress: [ Ayumi Ryou ,Okimiya Nami]
 ---
@@ -13,13 +13,13 @@ actress: [ Ayumi Ryou ,Okimiya Nami]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="QrzQ6m2qqpH0mOR">
     <a href="javascript:;">
         <img src="/v/juq532pl/juq532pl.jpg" width="WIDTH" height="HEIGHT" alt="juq532pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ayumi Ryou ,Okimiya Nami]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/QrzQ6m2qqpH0mOR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/7pvgu5otixqh" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ayumi Ryou ,Okimiya Nami]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

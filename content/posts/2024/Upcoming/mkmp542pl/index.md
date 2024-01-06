@@ -3,9 +3,9 @@ author: j91
 title: MKMP-542 One-night, Two-day Ejaculation Feast That Will Surely Bring Any Man To Pleasure. Three Big-breasted Landlady Won't Leave Until They Ejaculate 10 Times. A Hot Spring Inn That Makes Male Guests Cum In A Slimy Heaven.
 
 url: /v/mkmp542pl
-date: 1970-01-06T01:55:00Z
+date: 2024-01-06T01:55:00Z
 image: "mkmp542pl.jpg"
-tags: [Upcoming releases, Creampie, Big Tits, Landlady, Hostess, Hot Spring	]
+tags: [Censored, Creampie, Big Tits, Landlady, Hostess, Hot Spring	]
 maker: [ K.M.Produce  ]
 actress: [ Ranran ,Arioka Miu ,Kurumi Sakura ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ranran ,Arioka Miu ,Kurumi Sakura ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="zwjy3KOL1RtYloW">
     <a href="javascript:;">
         <img src="/v/mkmp542pl/mkmp542pl.jpg" width="WIDTH" height="HEIGHT" alt="mkmp542pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ranran ,Arioka Miu ,Kurumi Sakura ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/zwjy3KOL1RtYloW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/yyle86gjx0eo" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ranran ,Arioka Miu ,Kurumi Sakura ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: DVAJ-640 Even When I Interrogate The Multi-soldier Beautiful Woman Who Deceived Me After Just One Night's Relationship, She Is Driven Crazy By The Ejaculation Management Techniques Of Blaming And Teasing, And I Can't Tell Her To Cool Off... Mizuki Aime
 
 url: /v/dvaj640pl
-date: 1970-01-06T01:50:00Z
+date: 2024-01-06T01:50:00Z
 image: "dvaj640pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Slut, Slender, Submissive Men	]
+tags: [Censored, Creampie, Solowork, Slut, Slender, Submissive Men	]
 maker: [ Alice Japan  ]
 actress: [ Aiga Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Aiga Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="g0MJjkLly7fqAAA">
     <a href="javascript:;">
         <img src="/v/dvaj640pl/dvaj640pl.jpg" width="WIDTH" height="HEIGHT" alt="dvaj640pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Aiga Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/g0MJjkLly7fqAAA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/w0kz826y60qd" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Aiga Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

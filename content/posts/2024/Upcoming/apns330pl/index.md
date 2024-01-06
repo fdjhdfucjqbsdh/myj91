@@ -3,9 +3,9 @@ author: j91
 title: APNS-330 “I Will Continue To Be Raped And Inseminated By My Shut-in Classmate And His Family… Yes, Every Day From Now On…” Miko Kojima
 
 url: /v/apns330pl
-date: 1970-01-06T01:30:00Z
+date: 2024-01-06T01:30:00Z
 image: "apns330pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Solowork, School Girls, Facials, Drama	]
+tags: [Censored, Creampie, 3P, 4P, Solowork, School Girls, Facials, Drama	]
 maker: [ Aurora Project Annex  ]
 actress: [ Kojima Miko ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kojima Miko ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="W9k2RJZRaWFpDK">
     <a href="javascript:;">
         <img src="/v/apns330pl/apns330pl.jpg" width="WIDTH" height="HEIGHT" alt="apns330pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kojima Miko ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/W9k2RJZRaWFpDK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/emhj47flw7sz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kojima Miko ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: BAGR-028 NTR Video Letter My Beloved Wife Was Destroyed By A Former Student Who Was Too Yandere.
 
 url: /v/bagr028pl
-date: 1970-01-06T01:30:00Z
+date: 2024-01-06T01:30:00Z
 image: "bagr028pl.jpg"
-tags: [Upcoming releases, 3P, 4P, Beautiful Girl, Cuckold	]
+tags: [Censored, 3P, 4P, Beautiful Girl, Cuckold	]
 maker: [ Barutan  ]
 actress: [ Satsuki Ena ,Ichikawa Asuna ]
 ---
@@ -13,13 +13,13 @@ actress: [ Satsuki Ena ,Ichikawa Asuna ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="j6ODJmlKl0FzAA1">
     <a href="javascript:;">
         <img src="/v/bagr028pl/bagr028pl.jpg" width="WIDTH" height="HEIGHT" alt="bagr028pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Satsuki Ena ,Ichikawa Asuna ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/j6ODJmlKl0FzAA1" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/6389dk45ykkz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Satsuki Ena ,Ichikawa Asuna ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

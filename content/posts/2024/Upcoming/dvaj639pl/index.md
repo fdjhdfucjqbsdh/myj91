@@ -3,9 +3,9 @@ author: j91
 title: DVAJ-639 My Childhood Friend, Who Also Grew Up In The Countryside, Has Completely Become A Gal In Tokyo...Ranka During Summer Vacation Where She Was Attacked By A Slut Who Lives In The City And Had Sex With Her Over And Over Again.
 
 url: /v/dvaj639pl
-date: 1970-01-06T01:50:00Z
+date: 2024-01-06T01:50:00Z
 image: "dvaj639pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Gal, Slut, Virgin Man	]
+tags: [Censored, Creampie, Solowork, Gal, Slut, Virgin Man	]
 maker: [ Alice Japan  ]
 actress: [ Ranka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ranka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="4mjDl7O7YziK4XV">
     <a href="javascript:;">
         <img src="/v/dvaj639pl/dvaj639pl.jpg" width="WIDTH" height="HEIGHT" alt="dvaj639pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ranka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/4mjDl7O7YziK4XV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/clzq37h6u60f" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ranka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

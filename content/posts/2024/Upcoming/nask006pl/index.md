@@ -3,9 +3,9 @@ author: j91
 title: NASK-006 New 50's And 60's A Middle-aged And Elderly Couple Who Have Been Together For Many Years Rekindle Their Passion With Intense Kisses And Sexual Intercourse 2
 
 url: /v/nask006pl
-date: 1970-01-06T01:30:00Z
+date: 2024-01-06T01:30:00Z
 image: "nask006pl.jpg"
-tags: [Upcoming releases, Married Woman, 4HR+, Mature Woman, Hot Spring, Travel	]
+tags: [Censored, Married Woman, 4HR+, Mature Woman, Hot Spring, Travel	]
 maker: [ Nadeshiko  ]
 actress: [ Kurosaki Reiko , Tenkanmidu Kou , Takeuchi Rie,  Mayumi Ema , Miyuki Tsubasa , Asaoka Hikari ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kurosaki Reiko , Tenkanmidu Kou , Takeuchi Rie,  Mayumi Ema , Miyuki 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="YqmoL3JbK2uvYdJ">
     <a href="javascript:;">
         <img src="/v/nask006pl/nask006pl.jpg" width="WIDTH" height="HEIGHT" alt="nask006pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kurosaki Reiko , Tenkanmidu Kou , Takeuchi Rie,  Mayumi Ema , Miyuki 
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/YqmoL3JbK2uvYdJ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ftwmhmkfjg72" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kurosaki Reiko , Tenkanmidu Kou , Takeuchi Rie,  Mayumi Ema , Miyuki 
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

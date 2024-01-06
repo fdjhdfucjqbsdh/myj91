@@ -13,7 +13,7 @@ actress: [ Miyana Haruka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="W6xAjVplQ8SbPQb">
+<div class="video" data-videoid="qr4XKYAWLvTzBXW">
     <a href="javascript:;">
         <img src="/v/bacj088pl/bacj088pl.jpg" width="WIDTH" height="HEIGHT" alt="bacj088pl.mp4" loading="lazy">
     </a>
@@ -33,8 +33,8 @@ actress: [ Miyana Haruka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/W6xAjVplQ8SbPQb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://flaswish.com/fwraftxenvx8" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/qr4XKYAWLvTzBXW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/9kerf42akfq2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

@@ -3,9 +3,9 @@ author: j91
 title: JRBA-016 Photographer Picked Up A Scalpel For Obscene Purposes. 6 Shots Of Semen Swallowing And 4 Shots Of Vaginal Ejaculation Www Kanon Shinomiya
 
 url: /v/jrba016pl
-date: 1970-01-06T01:30:00Z
+date: 2024-01-06T01:30:00Z
 image: "jrba016pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Uniform, School Girls, POV, Squirting, 4HR+	]
+tags: [Censored, Creampie, Solowork, Uniform, School Girls, POV, Squirting, 4HR+	]
 maker: [ Usagi - Mousozoku  ]
 actress: [ Shinomiya Kanon ]
 ---
@@ -13,13 +13,13 @@ actress: [ Shinomiya Kanon ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="xlyY284G1Zu9Yw">
     <a href="javascript:;">
         <img src="/v/jrba016pl/jrba016pl.jpg" width="WIDTH" height="HEIGHT" alt="jrba016pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Shinomiya Kanon ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/xlyY284G1Zu9Yw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ifvwvy4dif5e" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Shinomiya Kanon ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

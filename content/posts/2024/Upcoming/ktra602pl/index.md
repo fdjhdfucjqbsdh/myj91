@@ -3,9 +3,9 @@ author: j91
 title: KTRA-602 I Love The Flat Pie! Flat Small Breasted Sisters 2 4 Hours
 
 url: /v/ktra602pl
-date: 1970-01-06T01:30:00Z
+date: 2024-01-06T01:30:00Z
 image: "ktra602pl.jpg"
-tags: [Upcoming releases, Best, Omnibus, 4HR+, Slender, Tits, Sister	]
+tags: [Censored, Best, Omnibus, 4HR+, Slender, Tits, Sister	]
 maker: [ Ke- . Toraibu  ]
 actress: [ Morikawa Hina, Junshin Karen, Mori Hinako ,Hoshiya Hitomi ,Kisaki Nana ]
 ---
@@ -13,13 +13,13 @@ actress: [ Morikawa Hina, Junshin Karen, Mori Hinako ,Hoshiya Hitomi ,Kisaki Nan
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="Mzb2OM3q4aSmXWM">
     <a href="javascript:;">
         <img src="/v/ktra602pl/ktra602pl.jpg" width="WIDTH" height="HEIGHT" alt="ktra602pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Morikawa Hina, Junshin Karen, Mori Hinako ,Hoshiya Hitomi ,Kisaki Nan
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Mzb2OM3q4aSmXWM" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/6abjrtphzfp5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Morikawa Hina, Junshin Karen, Mori Hinako ,Hoshiya Hitomi ,Kisaki Nan
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

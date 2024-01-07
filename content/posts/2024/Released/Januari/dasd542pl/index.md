@@ -13,7 +13,7 @@ actress: [Kirishima Reona ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="gR4qWWyqgxhq0z3">
+<div class="video" data-videoid="7K80zVjReotAzDX">
     <a href="javascript:;">
         <img src="/was/dasd542pl/dasd542pl.jpg" width="WIDTH" height="HEIGHT" alt="dasd542pl.mp4" loading="lazy">
     </a>
@@ -33,8 +33,8 @@ actress: [Kirishima Reona ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/gR4qWWyqgxhq0z3" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://flaswish.com/t2k3ln9q2816" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7K80zVjReotAzDX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/469gcfi39kqs" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Kirishima Reona ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://veev.to/d/2G4EikVtqCQDkP5WTIuh2zXetjPGS8xGHNxlwM3" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://filemoon.sx/d/60qzq2fyrsdr" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://veev.to/d/2J426dmnxKJSqGeQ71quDKySiG996hhcCUgEsqN" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="https://filemoon.sx/d/rmy2aa2hzcp7" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

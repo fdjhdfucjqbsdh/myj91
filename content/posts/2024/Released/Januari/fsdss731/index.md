@@ -13,7 +13,7 @@ actress: [Hachimitsu Rin]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pleVwWDVwotGM4">
+<div class="video" data-videoid="9vWDLplQlkIalga">
     <a href="javascript:;">
         <img src="/v/fsdss731/fsdss731.jpg" width="WIDTH" height="HEIGHT" alt="fsdss731.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Hachimitsu Rin]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/pleVwWDVwotGM4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/9vWDLplQlkIalga" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/8byqqltkqic7" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

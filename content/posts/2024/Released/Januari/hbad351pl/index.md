@@ -15,7 +15,7 @@ actress: [ Hiiragi Saki ]
 
 <div class="video" data-videoid="zlR2RvvoYWTYMA7">
     <a href="javascript:;">
-        <img src="/v/hbad351pl/hbad351pl.jpg" width="WIDTH" height="HEIGHT" alt="hbad351pl.mp4" loading="lazy">
+        <img src="/was/hbad351pl/hbad351pl.jpg" width="WIDTH" height="HEIGHT" alt="hbad351pl.mp4" loading="lazy">
     </a>
 </div>
 

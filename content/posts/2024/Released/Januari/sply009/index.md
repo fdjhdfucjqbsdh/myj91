@@ -13,7 +13,7 @@ actress: [Asano Riru]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="AK9OZ1y72ACvOA">
+<div class="video" data-videoid="ZPlapvK7vRsR8l">
     <a href="javascript:;">
         <img src="/v/sply009/sply009.jpg" width="WIDTH" height="HEIGHT" alt="sply009.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Asano Riru]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/AK9OZ1y72ACvOA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/ZPlapvK7vRsR8l" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/hgbf535zju4v" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

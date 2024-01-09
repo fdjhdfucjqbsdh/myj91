@@ -13,7 +13,7 @@ actress: [Akari Tsumugi ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="1DkqQRBv2xFbaz">
+<div class="video" data-videoid="8XGgBllqLAuoAj2">
     <a href="javascript:;">
         <img src="/was/ipx457pl/ipx457pl.jpg" width="WIDTH" height="HEIGHT" alt="ipx457pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Akari Tsumugi ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/1DkqQRBv2xFbaz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/8XGgBllqLAuoAj2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

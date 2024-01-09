@@ -13,7 +13,7 @@ actress: [ Inaba Ruka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="XbMMBR22gmtZqP">
+<div class="video" data-videoid="DZp7elQp33ukzk7">
     <a href="javascript:;">
         <img src="/was/dvdms500sopl/dvdms500sopl.jpg" width="WIDTH" height="HEIGHT" alt="dvdms500sopl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Inaba Ruka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/XbMMBR22gmtZqP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/DZp7elQp33ukzk7" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

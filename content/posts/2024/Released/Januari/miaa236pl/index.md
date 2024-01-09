@@ -13,7 +13,7 @@ actress: [ Hasumi Kurea]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="zp9w14GXJ9HQP0">
+<div class="video" data-videoid="9OJ1evLobghaW4O">
     <a href="javascript:;">
         <img src="/was/miaa236pl/miaa236pl.jpg" width="WIDTH" height="HEIGHT" alt="miaa236pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Hasumi Kurea]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/zp9w14GXJ9HQP0" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/9OJ1evLobghaW4O" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

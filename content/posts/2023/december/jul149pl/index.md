@@ -2,9 +2,9 @@
 author: j91
 title: JUL-149 Cinderella Wife Rinko Kinoshita 34 Years Old AV Debut! !
 url: /v/jul149pl
-date: 2023-06-25T01:00:00Z
+date: 2020-03-25T15:00:00Z
 image: "jul149pl.jpg"
-tags: [Censored, Solowork,Big Tits,Married Woman,Debut Production,Documentary,Mature Woman,Digital Mosaic	]
+tags: [Old Releases,Censored, Solowork,Big Tits,Married Woman,Debut Production,Documentary,Mature Woman,Digital Mosaic	]
 maker: [Madonna]
 actress: [Kinoshita Ririko]
 ---
@@ -12,7 +12,7 @@ actress: [Kinoshita Ririko]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="qr434Kx4XOCzXdw">
+<div class="video" data-videoid="bgkk31kAKehP9jR">
     <a href="javascript:;">
         <img src="/v/jul149pl/jul149pl.jpg" width="WIDTH" height="HEIGHT" alt="jul149pl.mp4" loading="lazy">
     </a>
@@ -32,7 +32,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/qr434Kx4XOCzXdw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/bgkk31kAKehP9jR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +41,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/613wdjz5mqxo" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/n2eg7vsnqeam" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

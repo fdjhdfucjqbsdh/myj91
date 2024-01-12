@@ -13,7 +13,7 @@ actress: [ Miyanishi Hikaru ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="YObL6rJqxXiv8L2">
+<div class="video" data-videoid="k0Vv9mKrB4crXG">
     <a href="javascript:;">
         <img src="/v/meyd880pl/meyd880pl.jpg" width="WIDTH" height="HEIGHT" alt="meyd880pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Miyanishi Hikaru ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/YObL6rJqxXiv8L2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/k0Vv9mKrB4crXG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/8y8pye7d6h8r" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

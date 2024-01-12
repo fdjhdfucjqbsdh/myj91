@@ -13,7 +13,7 @@ actress: [ Arata Arina]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="84dRlRKqbBsjaL">
+<div class="video" data-videoid="O2o2QOe2q1CZd7k">
     <a href="javascript:;">
         <img src="/v/midv592pl/midv592pl.jpg" width="WIDTH" height="HEIGHT" alt="midv592pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Arata Arina]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/84dRlRKqbBsjaL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/O2o2QOe2q1CZd7k" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/hn3e1uxj29pp" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

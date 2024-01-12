@@ -3,9 +3,9 @@ author: j91
 title: DVMM-058 General Men And Women Monitoring AV Charge Negotiation Just Before The Last Train On The Way Home From The After-party! Adult Men And Women Who Are Friends Take On An Extreme Mission Of 100,000 Yen Per Shot! Two Tipsy Young Wives Have Harem Reverse 3P Continuous Ejaculation Sex With A Married Man At A Love Hotel Until Morning! 2 A Secret Orgy That Forgets Each Other's Families Can't Be Contained In Just One Shot! !
 
 url: /v/dvmm058pl
-date: 1970-01-12T01:09:00Z
+date: 2024-01-12T01:09:00Z
 image: "dvmm058pl.jpg"
-tags: [Upcoming releases, Creampie,Amateur,Big Tits,Married Woman,Cuckold	]
+tags: [Censored, Creampie,Amateur,Big Tits,Married Woman,Cuckold	]
 maker: [Deeps]
 actress: [Arioka Miu ]
 ---
@@ -13,13 +13,13 @@ actress: [Arioka Miu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="AJLJKzxByQiX6Mq">
     <a href="javascript:;">
         <img src="/v/dvmm058pl/dvmm058pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm058pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [Arioka Miu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/AJLJKzxByQiX6Mq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/azq0mxi5dob0" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [Arioka Miu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

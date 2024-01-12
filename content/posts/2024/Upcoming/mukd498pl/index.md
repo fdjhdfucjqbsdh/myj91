@@ -3,9 +3,9 @@ author: j91
 title: MUKD-498 "A Secret That Only The Two Of Us Know That No One Knows About." Hikage And Riku Double Lesbian Ban Released
 
 url: /v/mukd498pl
-date: 1970-01-12T01:20:00Z
+date: 2024-01-12T01:20:00Z
 image: "mukd498pl.jpg"
-tags: [Upcoming releases, Lesbian, Uniform, School Girls, Lesbian Kiss, Kiss	]
+tags: [Censored, Lesbian, Uniform, School Girls, Lesbian Kiss, Kiss	]
 maker: [Muku]
 actress: [ Ichikawa Riku, Hinata Hikage]
 ---
@@ -13,13 +13,13 @@ actress: [ Ichikawa Riku, Hinata Hikage]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="GWLYR9req2c1JbW">
     <a href="javascript:;">
         <img src="/v/mukd498pl/mukd498pl.jpg" width="WIDTH" height="HEIGHT" alt="mukd498pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ichikawa Riku, Hinata Hikage]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/GWLYR9req2c1JbW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/qc6x1wo2je9b" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ichikawa Riku, Hinata Hikage]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

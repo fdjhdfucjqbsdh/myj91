@@ -3,9 +3,9 @@ author: j91
 title: EBWH-070 When I Took Off My First Girlfriend's Clothes...I Couldn't Imagine Her Slim Beauty And Big Breasts.I Was So Excited That I Fucked Her Until I Ran Out Of Sexual Desire.Shio Sato
 
 url: /v/ebwh070pl
-date: 1970-01-12T01:40:00Z
+date: 2024-01-12T01:40:00Z
 image: "ebwh070pl.jpg"
-tags: [Upcoming releases, Solowork, Big Tits, Beautiful Girl, Nasty, Hardcore, Slender, Female College Student	]
+tags: [Censored, Solowork, Big Tits, Beautiful Girl, Nasty, Hardcore, Slender, Female College Student	]
 maker: [E-body]
 actress: [ Satou Shio ]
 ---
@@ -13,13 +13,13 @@ actress: [ Satou Shio ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="oM3V8ekXWlcJ0Y4">
     <a href="javascript:;">
         <img src="/v/ebwh070pl/ebwh070pl.jpg" width="WIDTH" height="HEIGHT" alt="ebwh070pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Satou Shio ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/oM3V8ekXWlcJ0Y4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/kb7v70kyr6sf" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Satou Shio ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

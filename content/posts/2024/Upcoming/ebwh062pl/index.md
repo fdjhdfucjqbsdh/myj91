@@ -3,9 +3,9 @@ author: j91
 title: EBWH-062 Hikaru Aiura, The Charming Poster Girl (estimated To Be A G-cup) Who Works At A Local Chinese Restaurant That Went Viral For Being Too Cute, Made Her Unexpected AV Debut Without Telling The Manager.
 
 url: /v/ebwh062pl
-date: 1970-01-12T01:40:00Z
+date: 2024-01-12T01:40:00Z
 image: "ebwh062pl.jpg"
-tags: [Upcoming releases, Blow, Solowork, Big Tits, Titty Fuck, Debut Production, Beautiful Girl, Squirting	]
+tags: [Censored, Blow, Solowork, Big Tits, Titty Fuck, Debut Production, Beautiful Girl, Squirting	]
 maker: [E-body]
 actress: [ Aiura Hikaru ]
 ---
@@ -13,13 +13,13 @@ actress: [ Aiura Hikaru ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="xM2BR0Vjvac07b">
     <a href="javascript:;">
         <img src="/v/ebwh062pl/ebwh062pl.jpg" width="WIDTH" height="HEIGHT" alt="ebwh062pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Aiura Hikaru ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/xM2BR0Vjvac07b" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/oip13uxbxdcs" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Aiura Hikaru ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

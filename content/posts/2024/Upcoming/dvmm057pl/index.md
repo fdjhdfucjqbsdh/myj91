@@ -3,9 +3,9 @@ author: j91
 title: DVMM-057 General Male/female Monitoring AV. Limited To Loving Couples. Try Shadow Puppetry! Exciting Cuckold Silhouette Quiz! 2 A Female College Student Has Sex With A Big Penis And Cums Inside Her Even Though Her Boyfriend Is Watching Her Through The Cloth!
 
 url: /v/dvmm057pl
-date: 1970-01-12T01:09:00Z
+date: 2024-01-12T01:09:00Z
 image: "dvmm057pl.jpg"
-tags: [Upcoming releases, Creampie, Amateur, Planning, 4HR+, Female College Student, Cuckold	]
+tags: [Censored, Creampie, Amateur, Planning, 4HR+, Female College Student, Cuckold	]
 maker: [Deeps]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="lQPWm8XO9Lczq2">
     <a href="javascript:;">
         <img src="/v/dvmm057pl/dvmm057pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm057pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/lQPWm8XO9Lczq2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/dfs308ei6smm" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: KAM-167 Filmed By A Famous Supermarket Manager In Tokyo. Video 2 Of An Unscrupulous Erotic Store Manager Creampied By His Beautiful Big-breasted Wife Who Had Shoplifted With A 20 Cm Penis. 2 Iori Tsukimi
 
 url: /v/kam167pl
-date: 1970-01-12T01:15:00Z
+date: 2024-01-12T01:15:00Z
 image: "kam167pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Humiliation, Voyeur, Big Tits, Married Woman	]
+tags: [Censored, Creampie, Solowork, Humiliation, Voyeur, Big Tits, Married Woman	]
 maker: [Karuma]
 actress: [ Tsukimi Iori ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tsukimi Iori ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="VVArPXrzljfYDy">
     <a href="javascript:;">
         <img src="/v/kam167pl/kam167pl.jpg" width="WIDTH" height="HEIGHT" alt="kam167pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tsukimi Iori ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/VVArPXrzljfYDy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jnnme3c14b3v" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tsukimi Iori ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

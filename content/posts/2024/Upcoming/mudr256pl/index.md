@@ -3,9 +3,9 @@ author: j91
 title: MUDR-256 Deep Throating With A Girl In Uniform - Winner Of The Gold Prize In The Throat Contest - Uta-chan Hibino Uta
 
 url: /v/mudr256pl
-date: 1970-01-12T01:20:00Z
+date: 2024-01-12T01:20:00Z
 image: "mudr256pl.jpg"
-tags: [Upcoming releases, Solowork, Beautiful Girl, Nasty, Hardcore, Squirting, Deep Throating	]
+tags: [Censored, Solowork, Beautiful Girl, Nasty, Hardcore, Squirting, Deep Throating	]
 maker: [Muku]
 actress: [ Hibino Uta ]
 ---
@@ -13,13 +13,13 @@ actress: [ Hibino Uta ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="M78xze3p3Mtm43v">
     <a href="javascript:;">
         <img src="/v/mudr256pl/mudr256pl.jpg" width="WIDTH" height="HEIGHT" alt="mudr256pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Hibino Uta ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/M78xze3p3Mtm43v" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/aq5kiv9whivp" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Hibino Uta ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

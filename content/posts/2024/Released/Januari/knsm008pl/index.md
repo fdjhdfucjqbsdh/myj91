@@ -13,7 +13,7 @@ actress: [ Manase Yuuri ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="qgw0pLXLLQSzr9r">
+<div class="video" data-videoid="OXqDkXBOkzUZyyv">
     <a href="javascript:;">
         <img src="/v/knsm008pl/knsm008pl.jpg" width="WIDTH" height="HEIGHT" alt="knsm008pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Manase Yuuri ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/qgw0pLXLLQSzr9r" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/OXqDkXBOkzUZyyv" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/8sk78f4raeq5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

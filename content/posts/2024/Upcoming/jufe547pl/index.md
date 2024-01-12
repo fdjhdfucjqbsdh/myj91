@@ -3,9 +3,9 @@ author: j91
 title: JUFE-547 A Slutty Mature Woman Controls Dirty Talk With An Absolute Top-down View. The Ultimate Subjective JOI Where Ejaculation Is Controlled Tsubaki Kato
 
 url: /v/jufe547pl
-date: 1970-01-12T01:35:00Z
+date: 2024-01-12T01:35:00Z
 image: "jufe547pl.jpg"
-tags: [Upcoming releases, Solowork, Dirty Words, Slut, Subjectivity, Mature Woman	]
+tags: [Censored, Solowork, Dirty Words, Slut, Subjectivity, Mature Woman	]
 maker: [Fitch]
 actress: [ Natsuki Kaoru]
 ---
@@ -13,13 +13,13 @@ actress: [ Natsuki Kaoru]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="qvYqP0m4A2TzxLZ">
     <a href="javascript:;">
         <img src="/v/jufe547pl/jufe547pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe547pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Natsuki Kaoru]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/qvYqP0m4A2TzxLZ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/vwr9r9cg7y1m" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Natsuki Kaoru]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

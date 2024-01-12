@@ -3,9 +3,9 @@ author: j91
 title: MIDV-600 A New Graduate Office Lady With Beautiful Breasts Who Was Hired By Makurakone Sexually Harasses Me As A Meat Urinal. She Gives Me A Pleasure Penis Education And Forces My Clients, Perverted Old Men, To Give Me Physical Entertainment... Sperm Bukkake Ring ● 10 Ejaculations Yonomi Kimura
 
 url: /v/midv600pl
-date: 1970-01-12T01:55:00Z
+date: 2024-01-12T01:55:00Z
 image: "midv600pl.jpg"
-tags: [Upcoming releases, 3P, 4P, Solowork, Nasty, Hardcore, Facials, Abuse, Promiscuity	]
+tags: [Censored, 3P, 4P, Solowork, Nasty, Hardcore, Facials, Abuse, Promiscuity	]
 maker: [MOODYZ]
 actress: [ Kimura Konomi ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kimura Konomi ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="wOomy8XqXxFJ1bV">
     <a href="javascript:;">
         <img src="/v/midv600pl/midv600pl.jpg" width="WIDTH" height="HEIGHT" alt="midv600pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kimura Konomi ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/wOomy8XqXxFJ1bV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/t5ni5qwo0tpf" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kimura Konomi ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

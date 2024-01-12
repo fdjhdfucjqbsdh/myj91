@@ -3,9 +3,9 @@ author: j91
 title: MIAB-109 After A Drinking Party, I Was Taught Sticky Kissing By My Drunk Female Boss Who Is A Kisser, And I Had Kissing And Creampie Sex From Friday To Monday Kanna Misaki
 
 url: /v/miab109pl
-date: 1970-01-12T01:55:00Z
+date: 2024-01-12T01:55:00Z
 image: "miab109pl.jpg"
-tags: [Upcoming releases, OL, Creampie, Solowork, Slut, Kiss, Female Boss	]
+tags: [Censored, OL, Creampie, Solowork, Slut, Kiss, Female Boss	]
 maker: [MOODYZ]
 actress: [ Misaki Kanna ]
 ---
@@ -13,13 +13,13 @@ actress: [ Misaki Kanna ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="W1d69pk990Sq1M">
     <a href="javascript:;">
         <img src="/v/miab109pl/miab109pl.jpg" width="WIDTH" height="HEIGHT" alt="miab109pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misaki Kanna ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/W1d69pk990Sq1M" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/g0e8lt8lcka6" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misaki Kanna ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

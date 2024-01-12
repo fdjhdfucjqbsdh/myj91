@@ -13,7 +13,7 @@ actress: [ Nanasawa Mia]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="zXpezR8zx4TY3rV">
+<div class="video" data-videoid="GpyrBVYBA3f1GvJ">
     <a href="javascript:;">
         <img src="/v/midv593pl/midv593pl.jpg" width="WIDTH" height="HEIGHT" alt="midv593pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Nanasawa Mia]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/zXpezR8zx4TY3rV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/GpyrBVYBA3f1GvJ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/rc7e2kjhto80" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

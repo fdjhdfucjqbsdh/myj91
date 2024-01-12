@@ -3,9 +3,9 @@ author: j91
 title: PPBD-272 Pathetic Big-breasted Women Who End Up Cumming With Unwanted Pursuit Pistons! Group Circle BEST 4 Hours
 
 url: /v/ppbd272pl
-date: 1970-01-12T01:00:00Z
+date: 2024-01-12T01:00:00Z
 image: "ppbd272pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Best, Omnibus, Big Tits, 4HR+, Promiscuity	]
+tags: [Censored, Creampie, 3P, 4P, Best, Omnibus, Big Tits, 4HR+, Promiscuity	]
 maker: [Oppai]
 actress: [ Julia ,Hitomi,Yumi Shion,Nogi Hotaru, Yayoi Mizuki, Yuzuriha Karen, Kitano Mina, Momose Kurumi, Ayase Kokoro, Fujii Ranran  ]
 ---
@@ -13,13 +13,13 @@ actress: [ Julia ,Hitomi,Yumi Shion,Nogi Hotaru, Yayoi Mizuki, Yuzuriha Karen, K
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="4PL9eWKMQ9FKAG2">
     <a href="javascript:;">
         <img src="/v/ppbd272pl/ppbd272pl.jpg" width="WIDTH" height="HEIGHT" alt="ppbd272pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Julia ,Hitomi,Yumi Shion,Nogi Hotaru, Yayoi Mizuki, Yuzuriha Karen, K
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/4PL9eWKMQ9FKAG2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/9butg06d5m8m" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Julia ,Hitomi,Yumi Shion,Nogi Hotaru, Yayoi Mizuki, Yuzuriha Karen, K
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

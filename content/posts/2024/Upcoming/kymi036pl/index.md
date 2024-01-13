@@ -3,9 +3,9 @@ author: j91
 title: KYMI-036 Miyu Inamori, A High-legged Slut Who Seduces Men With Her Erotic Fully Clothed Body
 
 url: /v/kymi036pl
-date: 1970-01-13T01:50:00Z
+date: 2024-01-13T01:50:00Z
 image: "kymi036pl.jpg"
-tags: [Upcoming releases, Solowork, Pantyhose, Slut, Butt, Leg Fetish, Erotic Wear	]
+tags: [Censored, Solowork, Pantyhose, Slut, Butt, Leg Fetish, Erotic Wear	]
 maker: [ Miru  ]
 actress: [ Inamori Miyuu ]
 ---
@@ -13,13 +13,13 @@ actress: [ Inamori Miyuu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="9pv2dPY1wLCYAB">
     <a href="javascript:;">
         <img src="/v/kymi036pl/kymi036pl.jpg" width="WIDTH" height="HEIGHT" alt="kymi036pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Inamori Miyuu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/9pv2dPY1wLCYAB" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/akmgf1nj4721" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Inamori Miyuu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

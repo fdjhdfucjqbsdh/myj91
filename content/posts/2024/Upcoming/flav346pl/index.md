@@ -3,9 +3,9 @@ author: j91
 title: FLAV-346 HYPER FETISH High Leg Naughty Queen Yuina Taki
 
 url: /v/flav346pl
-date: 1970-01-13T01:30:00Z
+date: 2024-01-13T01:30:00Z
 image: "flav346pl.jpg"
-tags: [Upcoming releases, Solowork, Pantyhose, Leotard, Slut, Butt, Race Queen	]
+tags: [Censored, Solowork, Pantyhose, Leotard, Slut, Butt, Race Queen	]
 maker: [Digital Ark   ]
 actress: [ Taki Yuina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Taki Yuina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="mgmdAeAxYDhb4YR">
     <a href="javascript:;">
         <img src="/v/flav346pl/flav346pl.jpg" width="WIDTH" height="HEIGHT" alt="flav346pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Taki Yuina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/mgmdAeAxYDhb4YR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/zwl0h4addveg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Taki Yuina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

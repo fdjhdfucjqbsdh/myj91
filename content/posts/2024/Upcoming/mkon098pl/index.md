@@ -3,9 +3,9 @@ author: j91
 title: MKON-098 The Girl I Loved, Who I Was Planning To Confess To When I Became The Student Council President, Was Stolen Away By A Man Who Slipped In And Ran For Office, Rei Misumi.
 
 url: /v/mkon098pl
-date: 1970-01-13T01:55:00Z
+date: 2024-01-13T01:55:00Z
 image: "mkon098pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Solowork, School Girls, Cuckold	]
+tags: [Censored, Creampie, 3P, 4P, Solowork, School Girls, Cuckold	]
 maker: [ Kaguya Hime Pt - Mousozoku  ]
 actress: [ Misumi Rei ]
 ---
@@ -13,13 +13,13 @@ actress: [ Misumi Rei ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="RDdYdAAvwOCdQYB">
     <a href="javascript:;">
         <img src="/v/mkon098pl/mkon098pl.jpg" width="WIDTH" height="HEIGHT" alt="mkon098pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misumi Rei ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/RDdYdAAvwOCdQYB" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lfnr2jv1w92c" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misumi Rei ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

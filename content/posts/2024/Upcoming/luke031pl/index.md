@@ -3,9 +3,9 @@ author: j91
 title: LUKE-031 Staring, Whispering And Seducing Close Contact Ren Kitagawa, A Beautiful, Chewy, Big-breasted High School Girl Who Is So Sensitive That She Cries
 
 url: /v/luke031pl
-date: 1970-01-13T01:30:00Z
+date: 2024-01-13T01:30:00Z
 image: "luke031pl.jpg"
-tags: [Upcoming releases, Solowork, Dirty Words, Big Tits, Slut, Shaved, Submissive Men	]
+tags: [Censored, Solowork, Dirty Words, Big Tits, Slut, Shaved, Submissive Men	]
 maker: [ Digital Ark  ]
 actress: [ Kitagawa Ren ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kitagawa Ren ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="7p2X4leQkxF8Jz">
     <a href="javascript:;">
         <img src="/v/luke031pl/luke031pl.jpg" width="WIDTH" height="HEIGHT" alt="luke031pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kitagawa Ren ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7p2X4leQkxF8Jz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/l1f6j7dzz9t2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kitagawa Ren ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

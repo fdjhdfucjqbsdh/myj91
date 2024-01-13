@@ -3,9 +3,9 @@ author: j91
 title: TPNS-010 Serious Event ● [Shocking Video That Makes You Come Alive In Seconds] Beautiful Male Daughter Layer 19 Years Old [Complete Bug In The Brain Turns You Into A Super Sensitive De M] Climax Trance Convulsions Until Everyone's Face Is Broken Deep Throat Creampie Ass Hole SEX 5P Big Orgy
 
 url: /v/tpns010pl
-date: 1970-01-13T01:25:00Z
+date: 2024-01-13T01:25:00Z
 image: "tpns010pl.jpg"
-tags: [Upcoming releases, Transsexual, Cosplay, Promiscuity, Cross Dressing	]
+tags: [Censored, Transsexual, Cosplay, Promiscuity, Cross Dressing	]
 maker: [ Zennihon Kameko Kyoudou Kumiai- Mousozoku  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="Ok2K4gjJmPC90B">
     <a href="javascript:;">
         <img src="/v/tpns010pl/tpns010pl.jpg" width="WIDTH" height="HEIGHT" alt="tpns010pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/Ok2K4gjJmPC90B" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/m5tjxioe8a55" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

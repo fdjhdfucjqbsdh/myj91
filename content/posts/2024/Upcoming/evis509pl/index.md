@@ -3,9 +3,9 @@ author: j91
 title: EVIS-509 Vero Copulation Lesbian Kiss
 
 url: /v/evis509pl
-date: 1970-01-13T01:00:00Z
+date: 2024-01-13T01:00:00Z
 image: "evis509pl.jpg"
-tags: [Upcoming releases, Lesbian, Other Fetish, Older Sister, Lesbian Kiss, Kiss	]
+tags: [Censored, Lesbian, Other Fetish, Older Sister, Lesbian Kiss, Kiss	]
 maker: [ Ebisusan - Mousou Zoku  ]
 actress: [ Abeno Miku ,Saitou Miyu ,Miyazawa Yukari ,Hoshi Ameri ,Suzuki Chihiro ,Iwasawa Kayo, Saeki Yumika ,Otogoto Rui]
 ---
@@ -13,13 +13,13 @@ actress: [ Abeno Miku ,Saitou Miyu ,Miyazawa Yukari ,Hoshi Ameri ,Suzuki Chihiro
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="ldgP30RLpvF7RZr">
     <a href="javascript:;">
         <img src="/v/evis509pl/evis509pl.jpg" width="WIDTH" height="HEIGHT" alt="evis509pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Abeno Miku ,Saitou Miyu ,Miyazawa Yukari ,Hoshi Ameri ,Suzuki Chihiro
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/ldgP30RLpvF7RZr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/8hyk1cdwhlwy" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Abeno Miku ,Saitou Miyu ,Miyazawa Yukari ,Hoshi Ameri ,Suzuki Chihiro
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

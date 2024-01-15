@@ -13,7 +13,7 @@ actress: [ Ichino Aoi ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="QroDYJAlj1i0jpO">
+<div class="video" data-videoid="WD4GPlArdDSb3oA">
     <a href="javascript:;">
         <img src="/v/juq452pl/juq452pl.jpg" width="WIDTH" height="HEIGHT" alt="juq452pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Ichino Aoi ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/QroDYJAlj1i0jpO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/WD4GPlArdDSb3oA" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/ipdc6w74fmuk" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

@@ -5,9 +5,9 @@ title: WANZ-941 If You Can Put Up With W Terrible Tech Of Claire Hasumi And Yu S
 url: /was/wanz941pl
 date: 2020-04-25T18:00:00Z
 image: "wanz941pl.jpg"
-tags: [Old Releases,Censored, ]
+tags: [Old Releases,Censored,Creampie,3P, 4P,Older Sister,Slut,Fan Appreciation,Male Squirting	 ]
 maker: [WANZ FACTORY]
-actress: [ ]
+actress: [ Shinoda Yuu, Hasumi Kurea]
 ---
 
 

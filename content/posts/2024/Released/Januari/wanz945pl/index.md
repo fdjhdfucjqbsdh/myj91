@@ -5,9 +5,9 @@ title: WANZ-945 "I'm Alright!" Satomi Yuria
 url: /was/wanz945pl
 date: 2020-04-25T18:00:00Z
 image: "wanz945pl.jpg"
-tags: [Old Releases,Censored, ]
+tags: [Old Releases,Censored, Big tits, Creampie, Promiscuity, Squirting]
 maker: [WANZ FACTORY]
-actress: [ ]
+actress: [ Satomi Yuria]
 ---
 
 

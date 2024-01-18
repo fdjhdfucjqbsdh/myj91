@@ -5,9 +5,9 @@ title: WANZ-949 "What?! Did You Just Cum Inside Me?" He Tries To Hide His Premat
 url: /was/wanz949pl
 date: 2020-04-25T18:00:00Z
 image: "wanz949pl.jpg"
-tags: [Old Releases,Censored, ]
+tags: [Old Releases,Censored, Creampie, Cuckold, Impromptu Sex, Premature Ejaculation, School Girls]
 maker: [WANZ FACTORY]
-actress: [ ]
+actress: [ Kuruki Rei]
 ---
 
 

@@ -1,20 +1,20 @@
 ---
 author: j91
-title: JUL-180 Madonna Exclusive Cinderella Wife 2nd! ! Sweat, Saliva, Love Juice, And All Body Fluids Are Intertwined ... Dense Summer Affair Sex. Kinoshita Rinko
-url: /v/jul180pl
-date: 2020-04-25T21:00:00Z
-image: "jul180pl.jpg"
-tags: [Old Releases, Censored,Solowork,Married Woman,Affair,Mature Woman,Drama,Digital Mosaic,Kiss	 ]
-maker: [Madonna]
-actress: [Kinoshita Ririko]
+title: code_title
+url: /was/wanz947pl
+date: 2020-04-25T18:00:00Z
+image: "wanz947pl.jpg"
+tags: [Old Releases,Censored, ]
+maker: [WANZ FACTORY]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Oa1oGd2aRgUZA32">
+<div class="video" data-videoid="d76Y0G4274SkO4Y">
     <a href="javascript:;">
-        <img src="/v/jul180pl/jul180pl.jpg" width="WIDTH" height="HEIGHT" alt="jul180pl.mp4" loading="lazy">
+        <img src="/was/wanz947pl/wanz947pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz947pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +32,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Oa1oGd2aRgUZA32" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/d76Y0G4274SkO4Y" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +41,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/63r526ojcrn3" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/2rnga2r1ssso" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

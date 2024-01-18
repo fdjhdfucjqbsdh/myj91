@@ -1,20 +1,21 @@
 ---
 author: j91
-title: JUL-180 Madonna Exclusive Cinderella Wife 2nd! ! Sweat, Saliva, Love Juice, And All Body Fluids Are Intertwined ... Dense Summer Affair Sex. Kinoshita Rinko
-url: /v/jul180pl
+title: JUL-195 A Record Of Love And Forgetting Time With A Childhood Friend Who Had Been A Married Woman For Three Days When She Returned Home. Airi Kijima
+
+url: /was/jul195pl
 date: 2020-04-25T21:00:00Z
-image: "jul180pl.jpg"
-tags: [Old Releases, Censored,Solowork,Married Woman,Affair,Mature Woman,Drama,Digital Mosaic,Kiss	 ]
+image: "jul195pl.jpg"
+tags: [Old Releases,Censored, Affair, breasts, Married Woman, Mature Woman, Slender]
 maker: [Madonna]
-actress: [Kinoshita Ririko]
+actress: [ Kijima Airi]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Oa1oGd2aRgUZA32">
+<div class="video" data-videoid="ZqKvoRX3zOuqX6m">
     <a href="javascript:;">
-        <img src="/v/jul180pl/jul180pl.jpg" width="WIDTH" height="HEIGHT" alt="jul180pl.mp4" loading="lazy">
+        <img src="/was/jul195pl/jul195pl.jpg" width="WIDTH" height="HEIGHT" alt="jul195pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +33,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Oa1oGd2aRgUZA32" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/ZqKvoRX3zOuqX6m" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -41,7 +42,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/63r526ojcrn3" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/9ldu38hj5qhl" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

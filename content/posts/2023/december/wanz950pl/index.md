@@ -3,9 +3,9 @@ author: j91
 title: WANZ-950 Huh ... Sister! ? Ai Sayama Who Was Erotic With Her Immediately And Suddenly Estrus In A Sudden Ji Po And Continued To Ask For Creampie
 
 url: /v/wanz950pl
-date: 2023-06-25T07:00:00Z
+date: 2020-04-25T18:18:00Z
 image: "wanz950pl.jpg"
-tags: [Censored,Creampie,Solowork,Big Tits,Slut,Impromptu Sex,Cuckold	 ]
+tags: [Old Releases,Censored,Creampie,Solowork,Big Tits,Slut,Impromptu Sex,Cuckold	 ]
 maker: [ WANZ FACTORY  ]
 actress: [Sayama Ai]
 ---
@@ -13,7 +13,7 @@ actress: [Sayama Ai]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="VWLe2rALbmiKBBV">
+<div class="video" data-videoid="mgrJyL6xMwFbKeX">
     <a href="javascript:;">
         <img src="/v/wanz950pl/wanz950pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz950pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/VWLe2rALbmiKBBV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/mgrJyL6xMwFbKeX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/18feet6ogt5e" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/e14pmrdoj2ds" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

@@ -1,6 +1,7 @@
 ---
 author: j91
-title: code_title
+title: WANZ-945 "I'm Alright!" Satomi Yuria
+
 url: /was/wanz945pl
 date: 2020-04-25T18:00:00Z
 image: "wanz945pl.jpg"

@@ -3,9 +3,9 @@ author: j91
 title: JUQ-520 Madonna Dengeki Exclusive 'Miracle 42-year-old' Ayaka Muto Is A Hot Topic On SNS A Special Climax SEX Special Where The Highest-quality Married Woman Around 40 Is Seriously Disturbed
 
 url: /v/juq520pl
-date: 1970-01-19T01:50:00Z
+date: 2024-01-19T01:50:00Z
 image: "juq520pl.jpg"
-tags: [Upcoming releases, Solowork, Big Tits, Married Woman, Slender, Documentary, Mature Woman	]
+tags: [Censored, Solowork, Big Tits, Married Woman, Slender, Documentary, Mature Woman	]
 maker: [Madonna]
 actress: [ Mutou Ayaka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Mutou Ayaka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="M6Zzr81ZoYhmggg">
     <a href="javascript:;">
         <img src="/v/juq520pl/juq520pl.jpg" width="WIDTH" height="HEIGHT" alt="juq520pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mutou Ayaka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/M6Zzr81ZoYhmggg" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/v0vx7xtd7q4u" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mutou Ayaka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

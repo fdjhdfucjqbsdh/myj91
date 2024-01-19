@@ -3,9 +3,9 @@ author: j91
 title: HMN-519 Wanted My Beloved Father-in-law, Who Was Admitted To The Hospital After Being Diagnosed With A Life Expectancy, To Live Much Longer... For A Month, Without Telling My Husband, I Gave Him Life-prolonging Titty Fuck And Creampie Sex And Made Him Ejaculate So Much That He Wiped Out His Illness! Kana Kusakabe
 
 url: /v/hmn519pl
-date: 1970-01-19T01:45:00Z
+date: 2024-01-19T01:45:00Z
 image: "hmn519pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Big Tits, Nurse, Cuckold	]
+tags: [Censored, Blow, Creampie, Solowork, Big Tits, Nurse, Cuckold	]
 maker: [Honnaka]
 actress: [ Kusakabe Kana ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kusakabe Kana ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="ZX9M6arY0ZUqpOb">
     <a href="javascript:;">
         <img src="/v/hmn519pl/hmn519pl.jpg" width="WIDTH" height="HEIGHT" alt="hmn519pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kusakabe Kana ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/ZX9M6arY0ZUqpOb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/h8y2uk3n48t1" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kusakabe Kana ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: ENKI-067 Haruno, An Obedient And Masochist Meat Urinal, A Perverted Female Pig Who Couldn't Resist And Was Creampied While At Work. Her Back Was Broken By The Pounding Of Her Uterus.
 
 url: /v/enki067pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-19T01:05:00Z
 image: "enki067pl.jpg"
-tags: [Upcoming releases, Creampie, 4HR+, Deep Throating, Promiscuity, Gay, Submissive Woman	]
+tags: [Censored, Creampie, 4HR+, Deep Throating, Promiscuity, Gay, Submissive Woman	]
 maker: [ K.M.Produce  ]
 actress: [ Andou Haruno ]
 ---
@@ -13,13 +13,13 @@ actress: [ Andou Haruno ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="1pbWmjwZQzHJ0K">
     <a href="javascript:;">
         <img src="/v/enki067pl/enki067pl.jpg" width="WIDTH" height="HEIGHT" alt="enki067pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Andou Haruno ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/1pbWmjwZQzHJ0K" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/abqe9ewd1tec" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Andou Haruno ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://rubystm.com/1u8i1vi04ay7.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> SR</button></a></p>
+<p><a href="https://filemoon.sx/d/bkvidxcfw4g0" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: FOCS-174 [Nana Kisaki & Mei Satsuki] Pretending To Be A Secret Girl, But Actually The Strongest Lewd Slut! She Beats Men One After Another And Ejaculates More Than 20 Times! A Big Orgy 6P Sex Where The Plain Girl With Glasses Who Was Picked Up Suddenly Changes And Gets Scared!
 
 url: /v/focs174pl
-date: 1970-01-19T01:30:00Z
+date: 2024-01-19T01:30:00Z
 image: "focs174pl.jpg"
-tags: [Upcoming releases, Creampie, Slut, Glasses, Promiscuity, Drinking Party	]
+tags: [Censored, Creampie, Slut, Glasses, Promiscuity, Drinking Party	]
 maker: [Abc- Mousou Zoku]
 actress: [ Satsuki Mei ,Kisaki Nana]
 ---
@@ -13,13 +13,13 @@ actress: [ Satsuki Mei ,Kisaki Nana]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="myPWDXP4jXCb83O">
     <a href="javascript:;">
         <img src="/v/focs174pl/focs174pl.jpg" width="WIDTH" height="HEIGHT" alt="focs174pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Satsuki Mei ,Kisaki Nana]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/myPWDXP4jXCb83O" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/zr6k2k50wboe" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Satsuki Mei ,Kisaki Nana]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: CJOB-145 Wrapped In Big Breasts And Squeezed! Munyu! I Want To Ejaculate With A Slutty Titty Fuck! BEST
 
 url: /v/cjob145pl
-date: 1970-01-19T01:00:00Z
+date: 2024-01-19T01:00:00Z
 image: "cjob145pl.jpg"
-tags: [Upcoming releases, Best, Omnibus, Big Tits, Titty Fuck, Nasty, Hardcore, Slut, 4HR+	]
+tags: [Censored, Best, Omnibus, Big Tits, Titty Fuck, Nasty, Hardcore, Slut, 4HR+	]
 maker: [Bi]
 actress: [ Julia, Honma Yuri, Matsumoto Nanami, Sachiko, Fujimori Riho,Komine Hinata,Himesaki Hana, Nagisa Yukino, Ichika Nenne, Kitano Mina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Julia, Honma Yuri, Matsumoto Nanami, Sachiko, Fujimori Riho,Komine Hi
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="PXYxLRYDRai0Pa4">
     <a href="javascript:;">
         <img src="/v/cjob145pl/cjob145pl.jpg" width="WIDTH" height="HEIGHT" alt="cjob145pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Julia, Honma Yuri, Matsumoto Nanami, Sachiko, Fujimori Riho,Komine Hi
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/PXYxLRYDRai0Pa4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/e0gztgtycphq" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Julia, Honma Yuri, Matsumoto Nanami, Sachiko, Fujimori Riho,Komine Hi
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

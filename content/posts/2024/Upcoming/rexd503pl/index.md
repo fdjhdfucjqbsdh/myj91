@@ -3,9 +3,9 @@ author: j91
 title: REXD-503 Look Inside Your Underwear! The Woman Who Stole The Gift Bag Mizuki Yayoi
 
 url: /v/rexd503pl
-date: 1970-01-19T01:07:00Z
+date: 2024-01-19T01:07:00Z
 image: "rexd503pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, 3P, 4P, Solowork, Older Sister, Big Tits	]
+tags: [Censored, Blow, Creampie, 3P, 4P, Solowork, Older Sister, Big Tits	]
 maker: [Reddo]
 actress: [ Yayoi Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yayoi Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="2W8wKDmYzkSjMv">
     <a href="javascript:;">
         <img src="/v/rexd503pl/rexd503pl.jpg" width="WIDTH" height="HEIGHT" alt="rexd503pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/2W8wKDmYzkSjMv" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/g0f78vqh47mg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

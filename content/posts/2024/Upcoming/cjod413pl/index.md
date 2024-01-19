@@ -3,9 +3,9 @@ author: j91
 title: CJOD-413 My Female Boss, Who Becomes A Tongue Kisser When Drunk, Holds Me In A Tongue Hold And Makes Me Ejaculate While Making Me Drool. Hinako Mori
 
 url: /v/cjod413pl
-date: 1970-01-19T01:25:00Z
+date: 2024-01-19T01:25:00Z
 image: "cjod413pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Slut, Slender, Kiss, Female Boss	]
+tags: [Censored, Creampie, Solowork, Slut, Slender, Kiss, Female Boss	]
 maker: [Bi]
 actress: [ Mori Hinako ]
 ---
@@ -13,13 +13,13 @@ actress: [ Mori Hinako ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="zrxmQMaAz2cpp1">
     <a href="javascript:;">
         <img src="/v/cjod413pl/cjod413pl.jpg" width="WIDTH" height="HEIGHT" alt="cjod413pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mori Hinako ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/zrxmQMaAz2cpp1" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/zk6p2046cpwt" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mori Hinako ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

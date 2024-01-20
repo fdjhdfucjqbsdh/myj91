@@ -13,7 +13,7 @@ actress: [ Sayaka Hoshino]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="ylz0bp3wrdC1GzX">
+<div class="video" data-videoid="wkkoG0DPoQIJm8R">
     <a href="javascript:;">
         <img src="/v/012024_973-paco/012024_973-paco.jpg" width="WIDTH" height="HEIGHT" alt="012024_973-paco.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ Sayaka Hoshino]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/ylz0bp3wrdC1GzX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/wkkoG0DPoQIJm8R" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>

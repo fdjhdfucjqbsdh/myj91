@@ -3,9 +3,9 @@ author: j91
 title: MGMQ-125 My Son's Girlfriend Is A Slut, And While My Son Was Away, My Son's Anus Was Penetrated And He Was Forced To Cum. Moeka Marui
 
 url: /v/mgmq125pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-20T01:30:00Z
 image: "mgmq125pl.jpg"
-tags: [Upcoming releases, Anal, Blow, Handjob, Solowork, Slut, Submissive Men	]
+tags: [Censored, Anal, Blow, Handjob, Solowork, Slut, Submissive Men	]
 maker: [ MEGAMI  ]
 actress: [ Marui Moeka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Marui Moeka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="q9kvKgwRJbCLw1">
     <a href="javascript:;">
         <img src="/v/mgmq125pl/mgmq125pl.jpg" width="WIDTH" height="HEIGHT" alt="mgmq125pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Marui Moeka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/q9kvKgwRJbCLw1" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/9ufmk53qzrgh" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Marui Moeka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

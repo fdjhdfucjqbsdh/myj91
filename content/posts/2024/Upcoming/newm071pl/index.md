@@ -3,9 +3,9 @@ author: j91
 title: NEWM-071 True Abnormal Sexual Intercourse, A Fifty-Year-Old Mother And Her Son Part 17, A Perverted Lewd Mother Who Wants Her Son's Dick Kasumi Shimazaki
 
 url: /v/newm071pl
-date: 1970-01-20T01:40:00Z
+date: 2024-01-20T01:40:00Z
 image: "newm071pl.jpg"
-tags: [Upcoming releases, Solowork, Incest, Mature Woman, Mother, Drama, Cuckold	]
+tags: [Censored, Solowork, Incest, Mature Woman, Mother, Drama, Cuckold	]
 maker: [ Global Media Entertainment  ]
 actress: [ Shimazaki Kasumi ]
 ---
@@ -13,13 +13,13 @@ actress: [ Shimazaki Kasumi ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="2DYL8OlOAMSZ7Dq">
     <a href="javascript:;">
         <img src="/v/newm071pl/newm071pl.jpg" width="WIDTH" height="HEIGHT" alt="newm071pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Shimazaki Kasumi ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/2DYL8OlOAMSZ7Dq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/yxv2d78kmqy7" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Shimazaki Kasumi ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: FBOS-009 On A Stormy Night, Yuuri Oshikawa Is Alone With Her Female Boss, Trapped In The Office.
 
 url: /v/fbos009pl
-date: 1970-01-20T01:55:00Z
+date: 2024-01-20T01:55:00Z
 image: "fbos009pl.jpg"
-tags: [Upcoming releases, OL, Solowork, Pantyhose, Slut, Female Boss	]
+tags: [Censored, OL, Solowork, Pantyhose, Slut, Female Boss	]
 maker: [ Global Media Entertainment  ]
 actress: [ Oshikawa Yuuri ]
 ---
@@ -13,13 +13,13 @@ actress: [ Oshikawa Yuuri ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="jpvRZYzr42UgR1">
     <a href="javascript:;">
         <img src="/v/fbos009pl/fbos009pl.jpg" width="WIDTH" height="HEIGHT" alt="fbos009pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Oshikawa Yuuri ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/jpvRZYzr42UgR1" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/fswk0f8dmxwf" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Oshikawa Yuuri ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

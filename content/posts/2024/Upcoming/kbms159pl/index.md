@@ -3,9 +3,9 @@ author: j91
 title: KBMS-159 Erotic And Smelly Housewife Midori Fujisawa Midori
 
 url: /v/kbms159pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-20T01:30:00Z
 image: "kbms159pl.jpg"
-tags: [Upcoming releases, Solowork, Other Fetish, Scatology, Defecation	]
+tags: [Censored, Solowork, Other Fetish, Scatology, Defecation	]
 maker: [ 1113 Koubou - Mousouzoku  ]
 actress: [ Fujisawa Midori ]
 ---
@@ -13,13 +13,13 @@ actress: [ Fujisawa Midori ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="7BOg6ymoXvu8PV">
     <a href="javascript:;">
         <img src="/v/kbms159pl/kbms159pl.jpg" width="WIDTH" height="HEIGHT" alt="kbms159pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Fujisawa Midori ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7BOg6ymoXvu8PV" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/rwnw0t1llc71" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Fujisawa Midori ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

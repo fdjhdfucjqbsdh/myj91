@@ -3,9 +3,9 @@ author: j91
 title: NSFS-252 New Beloved Dutch Wife 4 - Living Together For Two Days And One Night With Unknown Old Men - Haruka Katsuragi
 
 url: /v/nsfs252pl
-date: 1970-01-20T01:56:00Z
+date: 2024-01-20T01:56:00Z
 image: "nsfs252pl.jpg"
-tags: [Upcoming releases, Solowork, Married Woman, Drama, Cuckold	]
+tags: [Censored, Solowork, Married Woman, Drama, Cuckold	]
 maker: [ Nagae Style  ]
 actress: [ Katsuragi Haruka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Katsuragi Haruka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="mwOAOWwx84fbjYb">
     <a href="javascript:;">
         <img src="/v/nsfs252pl/nsfs252pl.jpg" width="WIDTH" height="HEIGHT" alt="nsfs252pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Katsuragi Haruka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/mwOAOWwx84fbjYb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lu7ehte00y59" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Katsuragi Haruka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

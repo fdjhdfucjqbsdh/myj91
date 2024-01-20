@@ -3,9 +3,9 @@ author: j91
 title: UMSO-535 Mise Shime The Worst Ending With My Favorite Boyfriend VOL.02
 
 url: /v/umso535pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-20T01:30:00Z
 image: "umso535pl.jpg"
-tags: [Upcoming releases, Creampie, Best, Omnibus, Beautiful Girl, 4HR+, Tits	]
+tags: [Censored, Creampie, Best, Omnibus, Beautiful Girl, 4HR+, Tits	]
 maker: [ K.M.Produce  ]
 actress: [ Isumi Rion ,Shinohara Riko ,Kudou Rara ,Konno Miina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Isumi Rion ,Shinohara Riko ,Kudou Rara ,Konno Miina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="JwaV236dPZsVJP">
     <a href="javascript:;">
         <img src="/v/umso535pl/umso535pl.jpg" width="WIDTH" height="HEIGHT" alt="umso535pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Isumi Rion ,Shinohara Riko ,Kudou Rara ,Konno Miina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/JwaV236dPZsVJP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/002abszkx6sp" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Isumi Rion ,Shinohara Riko ,Kudou Rara ,Konno Miina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

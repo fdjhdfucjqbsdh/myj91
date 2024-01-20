@@ -3,9 +3,9 @@ author: j91
 title: USBA-072 Pervert Cabin Attendant, The Beautiful Masochist Cabin Attendant's Shameful Behavior Explodes With Desire And Volunteers For Training Ruisa Miyazuki
 
 url: /v/usba072pl
-date: 1970-01-20T01:50:00Z
+date: 2024-01-20T01:50:00Z
 image: "usba072pl.jpg"
-tags: [Upcoming releases, Restraint, Solowork, Bukkake, Stewardess, Piss Drinking, Submissive Woman	]
+tags: [Censored, Restraint, Solowork, Bukkake, Stewardess, Piss Drinking, Submissive Woman	]
 maker: [ Avs  ]
 actress: [ Totsuki Ruisa ]
 ---
@@ -13,13 +13,13 @@ actress: [ Totsuki Ruisa ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="A2qg1R0gxwfXLrz">
     <a href="javascript:;">
         <img src="/v/usba072pl/usba072pl.jpg" width="WIDTH" height="HEIGHT" alt="usba072pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Totsuki Ruisa ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/A2qg1R0gxwfXLrz" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ygzbkuva6qkg" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Totsuki Ruisa ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

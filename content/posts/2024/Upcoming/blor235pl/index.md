@@ -3,9 +3,9 @@ author: j91
 title: BLOR-235 Little Devil P-active Girl Shows Off Her Big Cock. At First, She Smiles And Shows Off Her Leeway, But... She Is Thoroughly Orgasmed By The Unparalleled Dick That Is So Different From Oji, And She Falls Into Complete Pleasure!
 
 url: /v/blor235pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-20T01:30:00Z
 image: "blor235pl.jpg"
-tags: [Upcoming releases, Facials, Massage, Deep Throating, Huge Cock, Acme · Orgasm	]
+tags: [Censored, Facials, Massage, Deep Throating, Huge Cock, Acme · Orgasm	]
 maker: [ Burokkori- Mousou Zoku]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="BedY0mm2qgIy031">
     <a href="javascript:;">
         <img src="/v/blor235pl/blor235pl.jpg" width="WIDTH" height="HEIGHT" alt="blor235pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/BedY0mm2qgIy031" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/uvcvy3q81was" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

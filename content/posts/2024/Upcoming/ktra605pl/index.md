@@ -3,9 +3,9 @@ author: j91
 title: KTRA-605 Plain-looking Girl With Erotic Glasses And Hidden Big Breasts, Kokoro, 21 Years Old, Construction Company Clerk, Kokoro Ayase
 
 url: /v/ktra605pl
-date: 1970-01-20T01:50:00Z
+date: 2024-01-20T01:50:00Z
 image: "ktra605pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Big Tits, Titty Fuck	]
+tags: [Censored, Blow, Creampie, Solowork, Big Tits, Titty Fuck	]
 maker: [ Ke- . Toraibu  ]
 actress: [ Ayase Kokoro ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ayase Kokoro ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="2r0ProrWaeuxzY">
     <a href="javascript:;">
         <img src="/v/ktra605pl/ktra605pl.jpg" width="WIDTH" height="HEIGHT" alt="ktra605pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ayase Kokoro ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/2r0ProrWaeuxzY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/lvx0d0zswvy2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ayase Kokoro ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

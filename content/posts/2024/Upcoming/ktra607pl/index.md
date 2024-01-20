@@ -3,9 +3,9 @@ author: j91
 title: KTRA-607 A Large Collection Of Immature Breasts! ! A Cup Beautiful Girl Collection 2 4 Hours
 
 url: /v/ktra607pl
-date: 1970-01-20T01:30:00Z
+date: 2024-01-20T01:30:00Z
 image: "ktra607pl.jpg"
-tags: [Upcoming releases, Best, Omnibus, Beautiful Girl, 4HR+, Slender, Tits	]
+tags: [Censored, Best, Omnibus, Beautiful Girl, 4HR+, Slender, Tits	]
 maker: [ Ke- . Toraibu  ]
 actress: [ Ishihara Rurika, Kurumi Tae, Nagase Yui, Asahi Shizuku, Futaba Kurumi ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ishihara Rurika, Kurumi Tae, Nagase Yui, Asahi Shizuku, Futaba Kurumi
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="01x9Wpjpz0iL19">
     <a href="javascript:;">
         <img src="/v/ktra607pl/ktra607pl.jpg" width="WIDTH" height="HEIGHT" alt="ktra607pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ishihara Rurika, Kurumi Tae, Nagase Yui, Asahi Shizuku, Futaba Kurumi
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/01x9Wpjpz0iL19" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/pgg1hovlxv2p" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ishihara Rurika, Kurumi Tae, Nagase Yui, Asahi Shizuku, Futaba Kurumi
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VE</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -13,7 +13,7 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="2kMD8bX0XLIZLZ4">
+<div class="video" data-videoid="0ezjPMbvkPhb700">
     <a href="javascript:;">
         <img src="/v/4227583/4227583.jpg" width="WIDTH" height="HEIGHT" alt="4227583.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/2kMD8bX0XLIZLZ4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/0ezjPMbvkPhb700" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/yrz4pwgyqpcl" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://filemoon.sx/d/uovmb1ohq7o9" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
 <br><br>
       </div>
     </div>

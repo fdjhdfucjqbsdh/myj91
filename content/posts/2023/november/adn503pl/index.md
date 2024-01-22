@@ -45,7 +45,7 @@ actress: [ Shiromine Miu ]
 	      <br>
 <div class="buttons">
 <p><a href="https://wolfstream.tv/hpoxsx4hrc8o"><button class="btn-hover color-9"><i class="fa fa-download"></i> WS</button></a></p>
-<p><a href="https://fviplions.com/f/ax4b6uxko1yq"><button class="btn-hover color-8"><i class="fa fa-download"></i> FL</button></a></p>
+<p><a href="https://luluvdo.com/d/oyjqsng5dscg"><button class="btn-hover color-8"><i class="fa fa-download"></i> LS</button></a></p>
 <p><a href="https://vembed.net/v/eL2157JbbyOrw48"><button class="btn-hover color-7"><i class="fa fa-download"></i> VG</button></a></p></div>
 <br><br>
       </div>

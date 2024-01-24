@@ -13,7 +13,7 @@ actress: [Tomoda Ayaka]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="4yG3GKOBAMhKa9k">
+<div class="video" data-videoid="1aZxpppb4khr6Z">
     <a href="javascript:;">
         <img src="/v/dldss257/dldss257.jpg" width="WIDTH" height="HEIGHT" alt="dldss257.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Tomoda Ayaka]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/4yG3GKOBAMhKa9k" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/1aZxpppb4khr6Z" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/6pyi8hzwu53p" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

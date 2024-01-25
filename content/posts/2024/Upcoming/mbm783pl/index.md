@@ -3,9 +3,9 @@ author: j91
 title: MBM-783 Married Woman Bondage 6 - Masochist Wives Whose Hidden Masochism Blooms And They Drown In Abnormal Pleasures. 12 Completely Fallen Married Women Whose Bodies And Minds Are Tied Up. 4 Hours Of Creampie Hell.
 
 url: /v/mbm783pl
-date: 1970-01-26T01:30:00Z
+date: 2024-01-25T15:30:00Z
 image: "mbm783pl.jpg"
-tags: [Upcoming releases, SM, Married Woman, Shibari, 4HR+	]
+tags: [Censored, SM, Married Woman, Shibari, 4HR+	]
 maker: [ MBM  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="wlgaXDM06Zceae">
     <a href="javascript:;">
         <img src="/v/mbm783pl/mbm783pl.jpg" width="WIDTH" height="HEIGHT" alt="mbm783pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/wlgaXDM06Zceae" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/jfzoehioj5hc" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://vidhidepro.com/f/ggk4lrssdanz" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="https://filemoon.sx/d/6fbindigngsu" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

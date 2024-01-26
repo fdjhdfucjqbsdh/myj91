@@ -3,9 +3,9 @@ author: j91
 title: CKW-007 I Was Always Called During My Lunch Break. However...I Ejaculated After 9 Hours. Moreover, He Blamed Her Immediately After That. And In The End, Rapid-fire Sex Ayano Kato
 
 url: /v/ckw007pl
-date: 1970-01-26T01:30:00Z
+date: 2024-01-26T01:30:00Z
 image: "ckw007pl.jpg"
-tags: [Upcoming releases, Handjob, Creampie, Solowork, Dirty Words, Cowgirl, Slut, Lingerie, Mature Woman, Facesitting, Submissive Men, Huge Butt	]
+tags: [Censored, Handjob, Creampie, Solowork, Dirty Words, Cowgirl, Slut, Lingerie, Mature Woman, Facesitting, Submissive Men, Huge Butt	]
 maker: [ Waap Entertainment  ]
 actress: [ Katou Ayano]
 ---
@@ -13,13 +13,13 @@ actress: [ Katou Ayano]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="VXjzeAbZOyuKWD8">
     <a href="javascript:;">
         <img src="/v/ckw007pl/ckw007pl.jpg" width="WIDTH" height="HEIGHT" alt="ckw007pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Katou Ayano]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/VXjzeAbZOyuKWD8" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/9m5e7h5ave19" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Katou Ayano]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://vidhidepro.com/f/bee76upxip5i" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="https://filemoon.sx/d/1ptzlk2vxhy1" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

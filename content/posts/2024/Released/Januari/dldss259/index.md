@@ -33,7 +33,7 @@ actress: [Hijiri Hibari]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="javascript:;" ><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/1dLQDwa4KDHJP8/DLDSS-259.mp4" ><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://flaswish.com/kiu9f4y27tuu" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

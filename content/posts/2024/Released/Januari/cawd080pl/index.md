@@ -1,21 +1,21 @@
 ---
 author: j91
-title: MEYD-598 Extraordinary Full-option Cum Shot Affair Ai Sayama
+title: CAWD-080 Hot Spring Affair Trip Sakurako Moko
 
-url: /v/meyd598pl
-date: 2020-06-25T06:00:00Z
-image: "meyd598pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Big Tits,Titty Fuck,Affair,Cuckold,Soapland	 ]
-maker: [Tameike Goro-]
-actress: [Sayama Ai]
+url: /was/cawd080pl
+date: 2020-06-25T05:00:00Z
+image: "cawd080pl.jpg"
+tags: [Old Releases,Censored, Affair, Beautiful Girl, Creampie, Hot Spring, Restraint, Solowork]
+maker: [Kawaii]
+actress: [Sakura Moko]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Xjm73Mo80QfZJp">
+<div class="video" data-videoid="kpLbMpVPYjfea9">
     <a href="javascript:;">
-        <img src="/v/meyd598pl/meyd598pl.jpg" width="WIDTH" height="HEIGHT" alt="meyd598pl.mp4" loading="lazy">
+        <img src="/was/cawd080pl/cawd080pl.jpg" width="WIDTH" height="HEIGHT" alt="cawd080pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Xjm73Mo80QfZJp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/kpLbMpVPYjfea9" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://flaswish.com/c79kfwacskf9" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://flaswish.com/qvvkb86moya2" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: MEYD-598 Extraordinary Full-option Cum Shot Affair Ai Sayama
+title: SSNI-804 A Boss With Big Boobs And A Virgin Subordinate At A Shared Room Hotel On A Business Trip ... A Subordinate Who Really Received The Naughty Temptation Has An Unequal Sexual Intercourse Of 10 Shots Aika Yumeno
 
-url: /v/meyd598pl
-date: 2020-06-25T06:00:00Z
-image: "meyd598pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Big Tits,Titty Fuck,Affair,Cuckold,Soapland	 ]
-maker: [Tameike Goro-]
-actress: [Sayama Ai]
+url: /was/ssni804pl
+date: 2020-06-25T04:00:00Z
+image: "ssni804pl.jpg"
+tags: [Old Releases,Censored, Big tits, Cuckold, OL, Risky Mosaic, Solowork, virgin man]
+maker: [S1 NO.1 STYLE]
+actress: [Yumeno Aika ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="Xjm73Mo80QfZJp">
+<div class="video" data-videoid="elO7pR9qJ6SmdG">
     <a href="javascript:;">
-        <img src="/v/meyd598pl/meyd598pl.jpg" width="WIDTH" height="HEIGHT" alt="meyd598pl.mp4" loading="lazy">
+        <img src="/was/ssni804pl/ssni804pl.jpg" width="WIDTH" height="HEIGHT" alt="ssni804pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/Xjm73Mo80QfZJp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/elO7pR9qJ6SmdG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://flaswish.com/c79kfwacskf9" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://flaswish.com/1qjfzckdhkr8" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

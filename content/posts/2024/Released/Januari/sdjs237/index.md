@@ -44,7 +44,7 @@ actress: [ ]
 	      <br>
 <div class="buttons">
 <p><a href="https://vidhidepro.com/f/5cz7uj1ogxlt" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="https://wolfstream.tv/np79vy4hcih7/SDJS-237.mp4.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

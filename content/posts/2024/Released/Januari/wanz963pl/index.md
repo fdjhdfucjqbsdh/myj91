@@ -1,20 +1,21 @@
 ---
 author: j91
-title: JUL-241 I Can't Say To My Wife If My Mouth Is Torn, That I Have Made My Mother-in-law Conceived. -I Was A Hot Spring Trip For 2 Days And 1 Night, And I Forgot Myself And Kept Vaginal Cum Shot. -Rinko Kinoshita
-url: /v/jul241pl
-date: 2020-06-25T14:00:00Z
-image: "jul241pl.jpg"
-tags: [Old Releases, Censored,Creampie,Solowork,Married Woman,Mature Woman,Digital Mosaic,Hot Spring,Sweat,Conceived	 ]
-maker: [Madonna]
-actress: [Kinoshita Ririko]
+title: WANZ-963 She Was Fucked All Night By Colleagues Who Were In Estrus After Being Played A Vulgar Banquet Game On A Company Trip ● JULIA
+
+url: /was/wanz963pl
+date: 2020-06-25T15:00:00Z
+image: "wanz963pl.jpg"
+tags: [Old Releases,Censored, abuse, Creampie, Cuckold, Deep Throating, Gangbang, Humiliation, Promiscuity]
+maker: [WANZ FACTORY]
+actress: [Julia]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="OavqBlWXQLsZO4D">
+<div class="video" data-videoid="my0mMpeOabSBBX">
     <a href="javascript:;">
-        <img src="/v/jul241pl/jul241pl.jpg" width="WIDTH" height="HEIGHT" alt="jul241pl.mp4" loading="lazy">
+        <img src="/was/wanz963pl/wanz963pl.jpg" width="WIDTH" height="HEIGHT" alt="wanz963pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -32,7 +33,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/OavqBlWXQLsZO4D" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/my0mMpeOabSBBX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -41,7 +42,7 @@ actress: [Kinoshita Ririko]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://flaswish.com/t4xt072488rz" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://flaswish.com/5npi6yb7t8ox" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

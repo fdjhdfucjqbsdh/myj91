@@ -3,9 +3,9 @@ author: j91
 title: LULU-271 While Working Overtime, I Was Forced To Cum Over And Over Again In The Office With Just The Two Of Us, Until I Fell Into The Pregnancy Trap Of My Boss, A Pre-menopausal Married Woman With Big Breasts In A Tight Suit, And Got Pregnant. Marina Yuzuki
 
 url: /v/lulu271pl
-date: 1970-02-02T01:30:00Z
+date: 2024-02-02T01:30:00Z
 image: "lulu271pl.jpg"
-tags: [Upcoming releases, OL, Creampie, Solowork, Big Tits, Married Woman	]
+tags: [Censored, OL, Creampie, Solowork, Big Tits, Married Woman	]
 maker: [LUNATICS]
 actress: [ Yuzuki Marina ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yuzuki Marina ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="gakRO8g3YeHJgO">
     <a href="javascript:;">
         <img src="/v/lulu271pl/lulu271pl.jpg" width="WIDTH" height="HEIGHT" alt="lulu271pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yuzuki Marina ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/gakRO8g3YeHJgO" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ymacn96lwqr3" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yuzuki Marina ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

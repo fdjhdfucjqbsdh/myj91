@@ -3,9 +3,9 @@ author: j91
 title: JBD-294 A Junior From College Who Made His Debut In The Entertainment World Is Doing Bondage Female Sex Behind The Scenes... Emi Nishino
 
 url: /v/jbd294pl
-date: 1970-02-02T01:50:00Z
+date: 2024-02-02T01:50:00Z
 image: "jbd294pl.jpg"
-tags: [Upcoming releases, Solowork, Shibari, Entertainer	]
+tags: [Censored, Solowork, Shibari, Entertainer	]
 maker: [Attackers]
 actress: [ Nishino Emi ]
 ---
@@ -13,13 +13,13 @@ actress: [ Nishino Emi ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="zlaJ2VjdyxiYzYx">
     <a href="javascript:;">
         <img src="/v/jbd294pl/jbd294pl.jpg" width="WIDTH" height="HEIGHT" alt="jbd294pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Nishino Emi ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/zlaJ2VjdyxiYzYx" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/iwnomtiq33sy" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Nishino Emi ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

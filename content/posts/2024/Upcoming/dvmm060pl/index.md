@@ -3,9 +3,9 @@ author: j91
 title: DVMM-060 Escape From The MM - A Female College Student's Friendship Project. Call Your Friend On The Phone Within 30 Minutes To 'substitute' And Escape From The Locked Room! Once The Time Limit Has Passed, The Big Dick Will Be Fucked Immediately! 8 With A Hard Piston That Won't Stop Even If You Cum, The Creampie Won't End Until Your Friend Comes In The Magic Mirror
 
 url: /v/dvmm060pl
-date: 1970-02-02T01:20:00Z
+date: 2024-02-02T01:20:00Z
 image: "dvmm060pl.jpg"
-tags: [Upcoming releases, Creampie, Amateur, 4HR+, Female College Student, Impromptu Sex, Huge Cock	]
+tags: [Censored, Creampie, Amateur, 4HR+, Female College Student, Impromptu Sex, Huge Cock	]
 maker: [Deeps]
 actress: [ Kamisaka Mei, Suzune Kyouka, Marui Moeka, Igarashi Mizuki, Haruna Noa ,Uruki Sarara ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kamisaka Mei, Suzune Kyouka, Marui Moeka, Igarashi Mizuki, Haruna Noa
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="y7OrWGLpl4iOR4">
     <a href="javascript:;">
         <img src="/v/dvmm060pl/dvmm060pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm060pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kamisaka Mei, Suzune Kyouka, Marui Moeka, Igarashi Mizuki, Haruna Noa
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/y7OrWGLpl4iOR4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/35dk9sc17vhc" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kamisaka Mei, Suzune Kyouka, Marui Moeka, Igarashi Mizuki, Haruna Noa
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

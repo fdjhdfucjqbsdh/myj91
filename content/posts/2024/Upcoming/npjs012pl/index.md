@@ -3,9 +3,9 @@ author: j91
 title: NPJS-012 REC Without Permission, Bring Home A Drunk Gal And Have Anal Penetration. ≪Problematic Piece Of True Story Shot≫ Homeless Child, Ran.
 
 url: /v/npjs012pl
-date: 1970-02-02T01:25:00Z
+date: 2024-02-02T01:25:00Z
 image: "npjs012pl.jpg"
-tags: [Upcoming releases, Anal, Creampie, Amateur, Gal, POV	]
+tags: [Censored, Anal, Creampie, Amateur, Gal, POV	]
 maker: [Nampa JAPAN]
 actress: [ Igarashi Seiran]
 ---
@@ -13,13 +13,13 @@ actress: [ Igarashi Seiran]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="DkMJe10DzXIkkAY">
     <a href="javascript:;">
         <img src="/v/npjs012pl/npjs012pl.jpg" width="WIDTH" height="HEIGHT" alt="npjs012pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Igarashi Seiran]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DkMJe10DzXIkkAY" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/1lq5rrxi3dt4" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Igarashi Seiran]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

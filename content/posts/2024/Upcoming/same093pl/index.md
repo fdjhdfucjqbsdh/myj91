@@ -3,9 +3,9 @@ author: j91
 title: SAME-093 My Father-in-law Couldn't Have Sex Because My Mother Was Pregnant, So He Started Raping Me From That Day And Even Impregnated Me. Miyu Oguri
 
 url: /v/same093pl
-date: 1970-02-02T01:50:00Z
+date: 2024-02-02T01:50:00Z
 image: "same093pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, School Girls, Beautiful Girl	]
+tags: [Censored, Creampie, Solowork, School Girls, Beautiful Girl	]
 maker: [Attackers]
 actress: [ Oguri Miyu ]
 ---
@@ -13,13 +13,13 @@ actress: [ Oguri Miyu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="dPplK0W7AjikqPd">
     <a href="javascript:;">
         <img src="/v/same093pl/same093pl.jpg" width="WIDTH" height="HEIGHT" alt="same093pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Oguri Miyu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/dPplK0W7AjikqPd" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/hab9jxl2ef5m" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Oguri Miyu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

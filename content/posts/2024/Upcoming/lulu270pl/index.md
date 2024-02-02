@@ -3,9 +3,9 @@ author: j91
 title: LULU-270 Sumire Kuramoto, A Neat Female Brat, Niece, And Big-assed Schoolgirl Who Keeps Teasing Her Uncle Who Caught Voyeurism Until His Big Dick Becomes Stupid And Scolds Him Over And Over Again To Make Him Ejaculate
 
 url: /v/lulu270pl
-date: 1970-02-02T01:30:00Z
+date: 2024-02-02T01:30:00Z
 image: "lulu270pl.jpg"
-tags: [Upcoming releases, Solowork, School Girls, Underwear, Incest, Huge Cock	]
+tags: [Censored, Solowork, School Girls, Underwear, Incest, Huge Cock	]
 maker: [LUNATICS]
 actress: [ Kuramoto Sumire ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kuramoto Sumire ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="jAllMpP4ekczylW">
     <a href="javascript:;">
         <img src="/v/lulu270pl/lulu270pl.jpg" width="WIDTH" height="HEIGHT" alt="lulu270pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kuramoto Sumire ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/jAllMpP4ekczylW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/c3rjpeylbxgt" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kuramoto Sumire ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

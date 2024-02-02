@@ -3,9 +3,9 @@ author: j91
 title: CAWD-635 Discovering Beautiful Girls! ! Tohoku's NO.1 Squirting Female College Student Mio Katsuki's Miraculous Big Squirt AV Debut
 
 url: /v/cawd635pl
-date: 1970-02-02T01:40:00Z
+date: 2024-02-02T01:40:00Z
 image: "cawd635pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Debut Production, Beautiful Girl, Squirting, Slender	]
+tags: [Censored, Creampie, Solowork, Debut Production, Beautiful Girl, Squirting, Slender	]
 maker: [Kawaii]
 actress: [ Katsuki Mio ]
 ---
@@ -13,13 +13,13 @@ actress: [ Katsuki Mio ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="bZwWM0kGW6SPA81">
     <a href="javascript:;">
         <img src="/v/cawd635pl/cawd635pl.jpg" width="WIDTH" height="HEIGHT" alt="cawd635pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Katsuki Mio ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/bZwWM0kGW6SPA81" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/a0567ndlk426" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Katsuki Mio ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

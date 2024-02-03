@@ -3,9 +3,9 @@ author: j91
 title: SORA-510 A Brainwashing Event Where A Arrogant Female Lawmaker Who Called My House A Garbage Mansion Was Brainwashed And Forced To Win The Election By Drinking Hard.Kanna Misaki
 
 url: /v/sora510pl
-date: 1970-02-03T01:40:00Z
+date: 2024-02-03T01:40:00Z
 image: "sora510pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Humiliation, Nasty, Hardcore, Hypnosis, Drama, Business Attire	]
+tags: [Censored, Creampie, Solowork, Humiliation, Nasty, Hardcore, Hypnosis, Drama, Business Attire	]
 maker: [ Yama To Sora  ]
 actress: [ Misaki Kanna ]
 ---
@@ -13,13 +13,13 @@ actress: [ Misaki Kanna ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="zX1RwgoMRkCozZ">
     <a href="javascript:;">
         <img src="/v/sora510pl/sora510pl.jpg" width="WIDTH" height="HEIGHT" alt="sora510pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Misaki Kanna ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/zX1RwgoMRkCozZ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/87rm5x9xrakv" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Misaki Kanna ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

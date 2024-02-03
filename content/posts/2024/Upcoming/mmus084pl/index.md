@@ -3,9 +3,9 @@ author: j91
 title: MMUS-084 Little Devil Provocative Beautiful Girl Kurumi Sakura
 
 url: /v/mmus084pl
-date: 1970-02-03T01:50:00Z
+date: 2024-02-03T01:50:00Z
 image: "mmus084pl.jpg"
-tags: [Upcoming releases, Solowork, Uniform, School Girls, Underwear, Dirty Words	]
+tags: [Censored, Solowork, Uniform, School Girls, Underwear, Dirty Words	]
 maker: [ Marrion  ]
 actress: [ Kurumi Sakura ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kurumi Sakura ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="ZDMw8VkP90iqXke">
     <a href="javascript:;">
         <img src="/v/mmus084pl/mmus084pl.jpg" width="WIDTH" height="HEIGHT" alt="mmus084pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kurumi Sakura ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/ZDMw8VkP90iqXke" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/7ylj1jku1vit" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kurumi Sakura ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

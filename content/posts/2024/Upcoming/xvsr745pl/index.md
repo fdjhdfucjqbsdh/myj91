@@ -3,9 +3,9 @@ author: j91
 title: XVSR-745 Secret Excavation Project, Get A Beautiful Girl In Uniform! Gonzo SEX SPECIAL That Teases Innocent Girls
 
 url: /v/xvsr745pl
-date: 1970-02-03T01:30:00Z
+date: 2024-02-03T01:30:00Z
 image: "xvsr745pl.jpg"
-tags: [Upcoming releases, Cosplay, Uniform, Big Tits, POV, Beautiful Girl, 4HR+	]
+tags: [Censored, Cosplay, Uniform, Big Tits, POV, Beautiful Girl, 4HR+	]
 maker: [ MAX-A  ]
 actress: [ Kururugi Aoi, Ichijou Mio, Minasuki Hikaru, Fukada Yuuri ,Tsukino Runa, Kawana Ai, Takanashi Momoe]
 ---
@@ -13,13 +13,13 @@ actress: [ Kururugi Aoi, Ichijou Mio, Minasuki Hikaru, Fukada Yuuri ,Tsukino Run
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="kWb8WLa0jMFPdL">
     <a href="javascript:;">
         <img src="/v/xvsr745pl/xvsr745pl.jpg" width="WIDTH" height="HEIGHT" alt="xvsr745pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kururugi Aoi, Ichijou Mio, Minasuki Hikaru, Fukada Yuuri ,Tsukino Run
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/kWb8WLa0jMFPdL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/w7kxlyhluq30" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kururugi Aoi, Ichijou Mio, Minasuki Hikaru, Fukada Yuuri ,Tsukino Run
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

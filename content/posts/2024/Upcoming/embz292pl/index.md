@@ -3,9 +3,9 @@ author: j91
 title: EMBZ-292 *The Steamy Soles Of A Mature Amateur Wife Sumire Mihara
 
 url: /v/embz292pl
-date: 1970-02-03T01:45:00Z
+date: 2024-02-03T01:45:00Z
 image: "embz292pl.jpg"
-tags: [Upcoming releases, Solowork, Humiliation, Pantyhose, Other Fetish, Mature Woman, Leg Fetish	]
+tags: [Censored, Solowork, Humiliation, Pantyhose, Other Fetish, Mature Woman, Leg Fetish	]
 maker: [ Juku Onna Juku - Emmanuelle  ]
 actress: [ Mihara Sumire ]
 ---
@@ -13,13 +13,13 @@ actress: [ Mihara Sumire ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="DeeXDWr4o2Uk2j2">
     <a href="javascript:;">
         <img src="/v/embz292pl/embz292pl.jpg" width="WIDTH" height="HEIGHT" alt="embz292pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mihara Sumire ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DeeXDWr4o2Uk2j2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/c9l2bodc5off" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mihara Sumire ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

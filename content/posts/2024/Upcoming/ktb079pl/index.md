@@ -3,9 +3,9 @@ author: j91
 title: KTB-079 The Lewd Older Sister Is Back! Even If The Sperm Dries Up, I Won't Let It Go, My Older Sister And I Fuck Each Other, And My Younger Brother's Sex Makes Her A Stupid Last Holiday Yuuri Kirika
 
 url: /v/ktb079pl
-date: 1970-02-03T01:45:00Z
+date: 2024-02-03T01:45:00Z
 image: "ktb079pl.jpg"
-tags: [Upcoming releases, OL, Solowork, Married Woman, Incest, Butt, Sister	]
+tags: [Censored, OL, Solowork, Married Woman, Incest, Butt, Sister	]
 maker: [ Kahanshin Tigers - Mousozoku  ]
 actress: [ Kirika Yuuri]
 ---
@@ -13,13 +13,13 @@ actress: [ Kirika Yuuri]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="O1G1Q4RZ3YfZq83">
     <a href="javascript:;">
         <img src="/v/ktb079pl/ktb079pl.jpg" width="WIDTH" height="HEIGHT" alt="ktb079pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kirika Yuuri]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/O1G1Q4RZ3YfZq83" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/teu9q3rzhiwn" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kirika Yuuri]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

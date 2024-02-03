@@ -3,9 +3,9 @@ author: j91
 title: DSDP-007 If You Look At It, You'll Be Surprised! Here Is The Place Where You Can See Western Clothes 2024
 
 url: /v/dsdp007pl
-date: 1970-02-03T01:30:00Z
+date: 2024-02-03T01:30:00Z
 image: "dsdp007pl.jpg"
-tags: [Upcoming releases, Anal, Blow, Lesbian, Best, Omnibus, 4HR+, Oversea Import	]
+tags: [Censored, Anal, Blow, Lesbian, Best, Omnibus, 4HR+, Oversea Import	]
 maker: [ Momotarou Eizou Shuppan  ]
 actress: [ Buritani- Andoryu-su, Emma Hicks, Eden Ivy, Tommy King, Jayla de Angels, Ariella Donovan, Hazel Moore, Seadra Day, Freya Parker, Sophia Burns ]
 ---
@@ -13,13 +13,13 @@ actress: [ Buritani- Andoryu-su, Emma Hicks, Eden Ivy, Tommy King, Jayla de Ange
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="2VWWXPjVGOHZ8rk">
     <a href="javascript:;">
         <img src="/v/dsdp007pl/dsdp007pl.jpg" width="WIDTH" height="HEIGHT" alt="dsdp007pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Buritani- Andoryu-su, Emma Hicks, Eden Ivy, Tommy King, Jayla de Ange
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/2VWWXPjVGOHZ8rk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/i5z00rjj8n20" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Buritani- Andoryu-su, Emma Hicks, Eden Ivy, Tommy King, Jayla de Ange
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

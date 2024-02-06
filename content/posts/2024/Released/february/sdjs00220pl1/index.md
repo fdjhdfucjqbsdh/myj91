@@ -3,7 +3,7 @@ author: j91
 title: SDJS-220 Izumi Mizutani (21), A New Graduate Ad With An Unpretentious Personality Who Decided To Join The Company Because She Admired The Female Employee In The Production Department. Her Breasts Were So Beautiful That She Decided To Shoot Them Immediately! It Was My Dream! ? First AV Appearance!
 
 url: /v/sdjs00220pl1
-date: 2024-02-05T16:15:00Z
+date: 2024-02-06T05:04:00Z
 image: "sdjs00220pl1.jpg"
 tags: [Censored, Breasts, Debut Production, Shaved, Solowork, Squirting]
 maker: [SOD Create]

@@ -3,7 +3,7 @@ author: j91
 title: STARS-984 Celebrity Manami Yano AV Debut [Nuku With Overwhelming 4k Video! ]
 
 url: /v/stars00984pl
-date: 2024-02-05T16:16:00Z
+date: 2024-02-06T05:05:00Z
 image: "stars00984pl.jpg"
 tags: [Censored, Debut Production, Documentary, Entertainer, Idol, Mini, Solowork]
 maker: [SOD Create]

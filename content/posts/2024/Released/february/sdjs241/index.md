@@ -7,7 +7,7 @@ date: 2024-02-06T04:35:00Z
 image: "sdjs241.jpg"
 tags: [Censored, Amateur, Documentary, OL, Solowork, Subjectivity]
 maker: [SOD Create]
-actress: [ ]
+actress: [Kurata Yuuki]
 ---
 
 

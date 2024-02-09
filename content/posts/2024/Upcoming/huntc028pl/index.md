@@ -3,9 +3,9 @@ author: j91
 title: HUNTC-028 A Runaway Girl Who Just Moved To Tokyo Stays In The Room And The Guys Rotate And Fuck Her Over And Over Again For 10 Hours In A Row, And Her Personality Collapses! 2
 
 url: /v/huntc028pl
-date: 1970-02-09T01:20:00Z
+date: 2024-02-09T01:20:00Z
 image: "huntc028pl.jpg"
-tags: [Upcoming releases, Blow, 3P, 4P, Cowgirl, Abuse, 4HR+, Back	]
+tags: [Censored, Blow, 3P, 4P, Cowgirl, Abuse, 4HR+, Back	]
 maker: [Hunter]
 actress: [ Yura Kana, Ichii Yuka, Igarashi Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yura Kana, Ichii Yuka, Igarashi Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="RjlpO6OpglSddeB">
     <a href="javascript:;">
         <img src="/v/huntc028pl/huntc028pl.jpg" width="WIDTH" height="HEIGHT" alt="huntc028pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yura Kana, Ichii Yuka, Igarashi Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/RjlpO6OpglSddeB" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/xgmgwsqqbww5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yura Kana, Ichii Yuka, Igarashi Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

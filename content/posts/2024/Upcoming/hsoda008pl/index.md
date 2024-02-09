@@ -3,9 +3,9 @@ author: j91
 title: HSODA-008 Day At The Ushio Announcer College. There Seems To Be A School In Tokyo That Trains Announcers Who Are Good At Dealing With Tides, And Because Of The Nature Of Their Profession, They Have To Let Go Of Any Sense Of Shame...
 
 url: /v/hsoda008pl
-date: 1970-02-09T01:25:00Z
+date: 2024-02-09T01:25:00Z
 image: "hsoda008pl.jpg"
-tags: [Upcoming releases, Creampie, Various Professions, Urination, Promiscuity, Fantasy	]
+tags: [Censored, Creampie, Various Professions, Urination, Promiscuity, Fantasy	]
 maker: [Hsoda]
 actress: [ Ootsuki Hibiki, Kamisaka Mei, Natsukuri Rio ]
 ---
@@ -13,13 +13,13 @@ actress: [ Ootsuki Hibiki, Kamisaka Mei, Natsukuri Rio ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="PJyzyGGdyviAm2">
     <a href="javascript:;">
         <img src="/v/hsoda008pl/hsoda008pl.jpg" width="WIDTH" height="HEIGHT" alt="hsoda008pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Ootsuki Hibiki, Kamisaka Mei, Natsukuri Rio ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/PJyzyGGdyviAm2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/4230cc9uhsat" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Ootsuki Hibiki, Kamisaka Mei, Natsukuri Rio ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -43,7 +43,7 @@ actress: [ Fuji Kanna ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://vidhidepro.com/f/vh_fileid" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="https://voe.sx/bw22dwnlqp6p" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VOE</button></a></p>
 <p><a href="https://filemoon.sx/d/kah1fv3hgwnd" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>

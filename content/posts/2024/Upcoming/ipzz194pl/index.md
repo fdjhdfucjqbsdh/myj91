@@ -3,9 +3,9 @@ author: j91
 title: IPZZ-194 My Side Job Is A Slutty Esthetician Who Bullies Masochistic Customers With Zero-distance Dirty Talk, Honoka Furukawa.
 
 url: /v/ipzz194pl
-date: 1970-02-09T01:53:00Z
+date: 2024-02-09T01:53:00Z
 image: "ipzz194pl.jpg"
-tags: [Upcoming releases, Solowork, Beauty Shop, Dirty Words, Slut, Drama	]
+tags: [Censored, Solowork, Beauty Shop, Dirty Words, Slut, Drama	]
 maker: [IDEA POCKET]
 actress: [ Furukawa Honoka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Furukawa Honoka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="MywBWrlZDAcmRzq">
     <a href="javascript:;">
         <img src="/v/ipzz194pl/ipzz194pl.jpg" width="WIDTH" height="HEIGHT" alt="ipzz194pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Furukawa Honoka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/MywBWrlZDAcmRzq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://flaswish.com/ds7o8eu3a320" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Furukawa Honoka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> WS</button></a></p></div>
 <br><br>
       </div>
     </div>

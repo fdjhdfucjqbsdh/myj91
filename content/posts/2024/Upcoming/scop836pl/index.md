@@ -3,9 +3,9 @@ author: j91
 title: SCOP-836 When I Took Care To Wash My Sister-in-law's Private Clothes Without Permission, Her Big Breasts Shrunk To The Point That They Spilled Out! ! My Sister-in-law Complained About Seeing Her Breasts Exposed, But When She Noticed My Erect Penis, She Suddenly Became Kind And We Had Sex! !
 
 url: /v/scop836pl
-date: 1970-02-10T01:50:00Z
+date: 2024-02-10T01:50:00Z
 image: "scop836pl.jpg"
-tags: [Upcoming releases, Creampie, Big Tits, Busty Fetish, Sister, Stepmother	]
+tags: [Censored, Creampie, Big Tits, Busty Fetish, Sister, Stepmother	]
 maker: [ K.M.Produce  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="dRWB707zk1tkdQR">
     <a href="javascript:;">
         <img src="/v/scop836pl/scop836pl.jpg" width="WIDTH" height="HEIGHT" alt="scop836pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/dRWB707zk1tkdQR" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/85l3v1t35exi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

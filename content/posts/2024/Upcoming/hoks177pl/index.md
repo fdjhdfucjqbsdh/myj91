@@ -3,9 +3,9 @@ author: j91
 title: HOKS-177 A Woman Who Does Things With Her Parents.Family Relationships Distorted By Lust.Sold By Her Father/Wants To Be Loved By Her Father/I'll Let Her Do It To Her Father.
 
 url: /v/hoks177pl
-date: 1970-02-10T01:30:00Z
+date: 2024-02-10T01:30:00Z
 image: "hoks177pl.jpg"
-tags: [Upcoming releases, Breasts, Incest, Drama, Multiple Story, Huge Butt	]
+tags: [Censored, Breasts, Incest, Drama, Multiple Story, Huge Butt	]
 maker: [ FA Pro . Platinum  ]
 actress: [ Kagami Mari, Hayami Nana, Marui Moeka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kagami Mari, Hayami Nana, Marui Moeka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="jp9eLgG9KqczpjW">
     <a href="javascript:;">
         <img src="/v/hoks177pl/hoks177pl.jpg" width="WIDTH" height="HEIGHT" alt="hoks177pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kagami Mari, Hayami Nana, Marui Moeka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/jp9eLgG9KqczpjW" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/087v49oteesz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kagami Mari, Hayami Nana, Marui Moeka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

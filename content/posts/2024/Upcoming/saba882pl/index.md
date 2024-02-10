@@ -3,9 +3,9 @@ author: j91
 title: SABA-882 Cute As A Celebrity! Become Friends With A Beautiful Girl And Do A Follow-up Investigation! Assortment Of Cute SEX! A Huge Resemblance To The National Idol! Facial Deviation Value Exceeds 70! She Has A Great Personality And Loves Naughty Things Too! Student Liana (pseudonym)
 
 url: /v/saba882pl
-date: 1970-02-10T01:30:00Z
+date: 2024-02-10T01:30:00Z
 image: "saba882pl.jpg"
-tags: [Upcoming releases, Cosplay, Creampie, Uniform, Amateur, Beautiful Girl, 4HR+	]
+tags: [Censored, Cosplay, Creampie, Uniform, Amateur, Beautiful Girl, 4HR+	]
 maker: [ S Kyuu Shirouto  ]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="jaeQjgbol9CqmX">
     <a href="javascript:;">
         <img src="/v/saba882pl/saba882pl.jpg" width="WIDTH" height="HEIGHT" alt="saba882pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/jaeQjgbol9CqmX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/afcf6dcboz2t" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

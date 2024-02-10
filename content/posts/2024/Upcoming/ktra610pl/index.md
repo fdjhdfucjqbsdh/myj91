@@ -3,9 +3,9 @@ author: j91
 title: KTRA-610 Continuous SEX With Big Breasted Sisters! ! 4 Hours
 
 url: /v/ktra610pl
-date: 1970-02-10T01:30:00Z
+date: 2024-02-10T01:30:00Z
 image: "ktra610pl.jpg"
-tags: [Upcoming releases, Best, Omnibus, Big Tits, Titty Fuck, 4HR+, Sister	]
+tags: [Censored, Best, Omnibus, Big Tits, Titty Fuck, 4HR+, Sister	]
 maker: [ Ke- . Toraibu  ]
 actress: [ Futaba Yoshika, Jinguuji Nao, Matsushita Hina, Shinozaki Kanna, Satsuki Mei ]
 ---
@@ -13,13 +13,13 @@ actress: [ Futaba Yoshika, Jinguuji Nao, Matsushita Hina, Shinozaki Kanna, Satsu
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="r83VB7gx49UbjM4">
     <a href="javascript:;">
         <img src="/v/ktra610pl/ktra610pl.jpg" width="WIDTH" height="HEIGHT" alt="ktra610pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Futaba Yoshika, Jinguuji Nao, Matsushita Hina, Shinozaki Kanna, Satsu
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/r83VB7gx49UbjM4" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/dogo2hv5i9yu" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Futaba Yoshika, Jinguuji Nao, Matsushita Hina, Shinozaki Kanna, Satsu
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

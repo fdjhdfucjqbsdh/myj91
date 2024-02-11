@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-188 Evening Wife Until A Neat Married Woman Who Devotedly Cares For Her Husband Meets A Man Who Has Been Hospitalized Next To Her... Ai Sayama
+title: JUFE-194 Old Man's Gonzo Document, Body Fluids That Gently Thoroughly Gently Sweaty Sexual Intercourse Tsubaki Rika
 
-url: /v/jufe188pl
+url: /was/jufe194pl
 date: 2020-07-25T08:00:00Z
-image: "jufe188pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Masturbation,Big Tits,Married Woman,Cuckold	 ]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+image: "jufe194pl.jpg"
+tags: [Old Releases,Censored, Beautiful Girl, Big tits, Creampie, POV, Solowork, Sweat]
+maker: [Fitch]
+actress: [Tsubaki Rika]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="y2aRJmxKDxsoYK">
+<div class="video" data-videoid="X16DLpkpMXsDjjQ">
     <a href="javascript:;">
-        <img src="/v/jufe188pl/jufe188pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe188pl.mp4" loading="lazy">
+        <img src="/was/jufe194pl/jufe194pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe194pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/y2aRJmxKDxsoYK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/X16DLpkpMXsDjjQ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://cdnwish.com/tcoriv2ppd67" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://cdnwish.com/w92rushagj0p" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

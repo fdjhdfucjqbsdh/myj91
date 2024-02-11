@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-188 Evening Wife Until A Neat Married Woman Who Devotedly Cares For Her Husband Meets A Man Who Has Been Hospitalized Next To Her... Ai Sayama
+title: DASD-699 I Can't Move Anymore Foot Injury Chase FUCK Yu Shinoda
 
-url: /v/jufe188pl
-date: 2020-07-25T08:00:00Z
-image: "jufe188pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Masturbation,Big Tits,Married Woman,Cuckold	 ]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+url: /was/dasd699pl
+date: 2020-07-25T07:00:00Z
+image: "dasd699pl.jpg"
+tags: [Old Releases,Censored, Confinement, Creampie, Cuckold, Hardcore, Huge Butt, Nasty, Solowork]
+maker: [Das !]
+actress: [Shinoda Yuu]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="y2aRJmxKDxsoYK">
+<div class="video" data-videoid="QPzgWMPe8XI0lx0">
     <a href="javascript:;">
-        <img src="/v/jufe188pl/jufe188pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe188pl.mp4" loading="lazy">
+        <img src="/was/dasd699pl/dasd699pl.jpg" width="WIDTH" height="HEIGHT" alt="dasd699pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/y2aRJmxKDxsoYK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/QPzgWMPe8XI0lx0" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://cdnwish.com/tcoriv2ppd67" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://cdnwish.com/9s2qwftpwzs5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

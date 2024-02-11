@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-188 Evening Wife Until A Neat Married Woman Who Devotedly Cares For Her Husband Meets A Man Who Has Been Hospitalized Next To Her... Ai Sayama
+title: DASD-696 The White Lecturer Who Was Brainwashed By Aphrodisiac Was A Nasty Bitch Though He Disliked It. Karina Nishida June Lovejoy
 
-url: /v/jufe188pl
-date: 2020-07-25T08:00:00Z
-image: "jufe188pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Masturbation,Big Tits,Married Woman,Cuckold	 ]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+url: /was/dasd696pl
+date: 2020-07-25T07:00:00Z
+image: "dasd696pl.jpg"
+tags: [Old Releases,Censored, Big tits, Drama, Hypnosis, Slender, White Actress]
+maker: [Das !]
+actress: [June Lovejoy, Nishita Karina]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="y2aRJmxKDxsoYK">
+<div class="video" data-videoid="kwXqo3QdMOFOjk9">
     <a href="javascript:;">
-        <img src="/v/jufe188pl/jufe188pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe188pl.mp4" loading="lazy">
+        <img src="/was/dasd696pl/dasd696pl.jpg" width="WIDTH" height="HEIGHT" alt="dasd696pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/y2aRJmxKDxsoYK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/kwXqo3QdMOFOjk9" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://cdnwish.com/tcoriv2ppd67" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://cdnwish.com/m10hxqstzvyc" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

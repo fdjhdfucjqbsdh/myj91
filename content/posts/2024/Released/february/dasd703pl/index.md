@@ -1,21 +1,21 @@
 ---
 author: j91
-title: JUFE-188 Evening Wife Until A Neat Married Woman Who Devotedly Cares For Her Husband Meets A Man Who Has Been Hospitalized Next To Her... Ai Sayama
+title: DASD-703 When I Went To A Hot Spring Trip For Two Nights With A Male Friend Who Used To Be A Long Time Ago, I Became A Too Cute Transsexual. Yuria Dream
 
-url: /v/jufe188pl
-date: 2020-07-25T08:00:00Z
-image: "jufe188pl.jpg"
-tags: [Old Releases,Censored,Creampie,Solowork,Masturbation,Big Tits,Married Woman,Cuckold	 ]
-maker: [Fitch   ]
-actress: [Sayama Ai]
+url: /was/dasd703pl
+date: 2020-07-25T06:55:00Z
+image: "dasd703pl.jpg"
+tags: [Old Releases,Censored, Anal, Hot Spring, Older sister, Solowork, Transsexual]
+maker: [Das !]
+actress: [ Yumemi Riara]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="y2aRJmxKDxsoYK">
+<div class="video" data-videoid="APQLRARapgubrP">
     <a href="javascript:;">
-        <img src="/v/jufe188pl/jufe188pl.jpg" width="WIDTH" height="HEIGHT" alt="jufe188pl.mp4" loading="lazy">
+        <img src="/was/dasd703pl/dasd703pl.jpg" width="WIDTH" height="HEIGHT" alt="dasd703pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,7 +33,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/y2aRJmxKDxsoYK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<p><a href="https://streamtape.to/v/APQLRARapgubrP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Sayama Ai]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://cdnwish.com/tcoriv2ppd67" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> SW</button></a></div>
+<p><a href="https://cdnwish.com/882uimjt3fwl" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
 <br><br>
       </div>
     </div>

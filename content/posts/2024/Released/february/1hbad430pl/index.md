@@ -33,7 +33,8 @@ actress: [Sasaki Aki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/4ym461ROVGsVGj" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p></div>
+<p><a href="https://streamtape.to/v/4ym461ROVGsVGj" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://vidoza.net/u18mify8tq6p.html" target="_blank"><button class="btn-hover color-1"><i class="fa fa-download"></i> VDZ</button></a></p></div>
     </div>
   </div>
 </div>

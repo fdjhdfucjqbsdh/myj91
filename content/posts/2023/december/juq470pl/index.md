@@ -44,7 +44,7 @@ actress: [Hayama Sayuri  ]
 	      <br>
 <div class="buttons">
 <p><a href="https://filelions.site/f/p6y8aypk4x0d" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> FL</button></a></p>
-<p><a href="https://filemoon.sx/d/e07x604s0rf2" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="https://vidoza.net/whyfm1vc517d.html" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> VDZ</button></a></p></div>
 <br><br>
       </div>
     </div>

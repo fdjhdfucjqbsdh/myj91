@@ -13,7 +13,7 @@ actress: [Akira Eri ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="m38m0DeXpzsbjqy">
+<div class="video" data-videoid="eqqdGvOmLwfYzzr">
     <a href="javascript:;">
         <img src="/was/pred188pl/pred188pl.jpg" width="WIDTH" height="HEIGHT" alt="pred188pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [Akira Eri ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<a href="https://streamtape.to/v/m38m0DeXpzsbjqy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
+<a href="https://streamtape.to/v/eqqdGvOmLwfYzzr" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></div>
     </div>
   </div>
 </div>
@@ -42,7 +42,7 @@ actress: [Akira Eri ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-    <a href="https://filemoon.sx/d/baepvpeo68bl" target="_blank"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></div>
+    <a href="https://vidoza.net/15upzp4ujz5b.html" target="_blank"><button class="btn-hover color-1"><i class="fa fa-download"></i> VDZ</button></a></div>
 <br><br>
       </div>
     </div>

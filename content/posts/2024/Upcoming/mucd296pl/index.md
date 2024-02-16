@@ -3,9 +3,9 @@ author: j91
 title: MUCD-296 Lovely Sex With A Super Cute Beautiful Girl In Uniform Who Can Cum At The Best. Super Intense Insemination With Two Beautiful Girls Who Fuck Until All The Sperm Comes Out. Massive Creampie, Gonzo, Blow Job Face And Orgasm Face Are The Best (MUCD-296)
 
 url: /v/mucd296pl
-date: 1970-02-16T01:20:00Z
+date: 2024-02-16T01:20:00Z
 image: "mucd296pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, School Girls, Beautiful Girl, Facials	]
+tags: [Censored, Blow, Creampie, School Girls, Beautiful Girl, Facials	]
 maker: [Muku]
 actress: [ Kurumi Sakura, Aizuki Himari ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kurumi Sakura, Aizuki Himari ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="2PRx8WQP70SVGP">
     <a href="javascript:;">
         <img src="/v/mucd296pl/mucd296pl.jpg" width="WIDTH" height="HEIGHT" alt="mucd296pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kurumi Sakura, Aizuki Himari ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/2PRx8WQP70SVGP" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/87klxynbec8i" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kurumi Sakura, Aizuki Himari ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MKCK-352 Creampie Intercourse 84 Times, With A Young Face And Big Breasts, Injecting A Lot Of Thick Sperm Into The Immature Body Of A Girl In Uniform
 
 url: /v/mkck352pl
-date: 1970-02-16T01:20:00Z
+date: 2024-02-16T01:20:00Z
 image: "mkck352pl.jpg"
-tags: [Upcoming releases, Creampie, Best, Omnibus, Big Tits, 4HR+, Slender	]
+tags: [Censored, Creampie, Best, Omnibus, Big Tits, 4HR+, Slender	]
 maker: [Muku]
 actress: [ Takasugi Mari, Misono Waka, Fukada Yuuri ,Misaki Azusa, Kurisu Minami, Yokomiya Nanami ,Hakaze Yuria ,Hoshimiya Yunon, Amatsuki Azu ,Arisu Kanau ]
 ---
@@ -13,13 +13,13 @@ actress: [ Takasugi Mari, Misono Waka, Fukada Yuuri ,Misaki Azusa, Kurisu Minami
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="KzLO19y0RvsJQJ">
     <a href="javascript:;">
         <img src="/v/mkck352pl/mkck352pl.jpg" width="WIDTH" height="HEIGHT" alt="mkck352pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Takasugi Mari, Misono Waka, Fukada Yuuri ,Misaki Azusa, Kurisu Minami
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/KzLO19y0RvsJQJ" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/q5rw32a4bbv0" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Takasugi Mari, Misono Waka, Fukada Yuuri ,Misaki Azusa, Kurisu Minami
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

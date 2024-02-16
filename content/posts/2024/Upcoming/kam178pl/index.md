@@ -3,9 +3,9 @@ author: j91
 title: KAM-178 A Wife With Plump Breasts And Ass Who Is Forced To Cum To Death By Her Sexually Harassing Father-in-law Who Hates Her After Being Seen Cheating On Her And Masturbating. Her Frustrated Body Reacts And She Can't Hold Back And Climaxes. Nene Tanaka
 
 url: /v/kam178pl
-date: 1970-02-16T01:09:00Z
+date: 2024-02-16T01:09:00Z
 image: "kam178pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Humiliation, Big Tits, Married Woman, Documentary	]
+tags: [Censored, Creampie, Solowork, Humiliation, Big Tits, Married Woman, Documentary	]
 maker: [Karuma]
 actress: [ Tanaka Nene ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tanaka Nene ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="XJl2jy6mJjsDDOd">
     <a href="javascript:;">
         <img src="/v/kam178pl/kam178pl.jpg" width="WIDTH" height="HEIGHT" alt="kam178pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tanaka Nene ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/XJl2jy6mJjsDDOd" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/m04c5afjuqil" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tanaka Nene ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

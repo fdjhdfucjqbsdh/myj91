@@ -3,9 +3,9 @@ author: j91
 title: DVMM-067 Just Before Retirement! Mitsuki Nagisa's Blue Sky Bukkake Fan Appreciation Festival, Treating Amateur Men With All Her Might! Semen Removal Tour, Cum Swallowing, Bukkake, And Raw Creampie! Total 35 Shots
 
 url: /v/dvmm067pl
-date: 1970-02-16T01:10:00Z
+date: 2024-02-16T01:10:00Z
 image: "dvmm067pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Outdoors, Cum, Bukkake, Fan Appreciation	]
+tags: [Censored, Creampie, Solowork, Outdoors, Cum, Bukkake, Fan Appreciation	]
 maker: [Deeps]
 actress: [ Nagisa Mitsuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Nagisa Mitsuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="erL7LjD18JFYz0D">
     <a href="javascript:;">
         <img src="/v/dvmm067pl/dvmm067pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm067pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Nagisa Mitsuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/erL7LjD18JFYz0D" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/2wsfk9h2qaod" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Nagisa Mitsuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

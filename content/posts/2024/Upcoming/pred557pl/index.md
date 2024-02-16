@@ -3,9 +3,9 @@ author: j91
 title: PRED-557 Creampie Ban Lifted For The First Time In My Life! Premium Exclusive Decided S-class Slender Body Suddenly 10 Creampies Special Ichika Hoshimiya
 
 url: /v/pred557pl
-date: 1970-02-16T01:50:00Z
+date: 2024-02-16T01:50:00Z
 image: "pred557pl.jpg"
-tags: [Upcoming releases, Creampie, 3P, 4P, Solowork, Older Sister, Slender	]
+tags: [Censored, Creampie, 3P, 4P, Solowork, Older Sister, Slender	]
 maker: [Premium]
 actress: [ Hoshimiya Ichika ]
 ---
@@ -13,13 +13,13 @@ actress: [ Hoshimiya Ichika ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="A2ll9966rOcmj8">
     <a href="javascript:;">
         <img src="/v/pred557pl/pred557pl.jpg" width="WIDTH" height="HEIGHT" alt="pred557pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Hoshimiya Ichika ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/A2ll9966rOcmj8" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/wsvo9mvbgda3" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Hoshimiya Ichika ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

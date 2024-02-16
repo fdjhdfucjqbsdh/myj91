@@ -3,9 +3,9 @@ author: j91
 title: MUKC-045 An Underground Idol Who Is In The Heat Of Heat. An Off-campus Orgy With Beautiful Girls Who Are Too Addicted To Sex. Creampie, Covered In Juice, Cumming. Hikage Hinata Minami Maeda
 
 url: /v/mukc045pl
-date: 1970-02-16T01:20:00Z
+date: 2024-02-16T01:20:00Z
 image: "mukc045pl.jpg"
-tags: [Upcoming releases, Cosplay, Creampie, 3P, 4P, Promiscuity, Entertainer	]
+tags: [Censored, Cosplay, Creampie, 3P, 4P, Promiscuity, Entertainer	]
 maker: [Muku]
 actress: [ Hinata Hikage ,Maeta Minami ]
 ---
@@ -13,13 +13,13 @@ actress: [ Hinata Hikage ,Maeta Minami ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="myjJBx6kArTld1">
     <a href="javascript:;">
         <img src="/v/mukc045pl/mukc045pl.jpg" width="WIDTH" height="HEIGHT" alt="mukc045pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Hinata Hikage ,Maeta Minami ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/myjJBx6kArTld1" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/h6rrd1fzonsz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Hinata Hikage ,Maeta Minami ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

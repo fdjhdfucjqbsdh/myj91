@@ -3,9 +3,9 @@ author: j91
 title: PPPE-192 A Drunken Big-breasted Girl Sitting In A Residential Area Near The Station Is Brought In And Imprisoned. She Is Made To Drink Alcohol And Play With Aphrodisiacs And Has Her Big Boobs All To Herself Until The Morning. Her Mind Is Clouded And She Has Sex With Her. H-chan (tentative Name)
 
 url: /v/pppe192pl
-date: 1970-02-16T01:50:00Z
+date: 2024-02-16T01:50:00Z
 image: "pppe192pl.jpg"
-tags: [Upcoming releases, Blow, Other Fetish, Big Tits, Titty Fuck	]
+tags: [Censored, Blow, Other Fetish, Big Tits, Titty Fuck	]
 maker: [Oppai]
 actress: [ ]
 ---
@@ -13,13 +13,13 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="QAxgd81VjpH97P">
     <a href="javascript:;">
         <img src="/v/pppe192pl/pppe192pl.jpg" width="WIDTH" height="HEIGHT" alt="pppe192pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/QAxgd81VjpH97P" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/oaxbn8brfd7j" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

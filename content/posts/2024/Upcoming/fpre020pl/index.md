@@ -3,9 +3,9 @@ author: j91
 title: FPRE-020 The Soft And Fluffy Breasts That Are The Best When Rubbed Are Still Growing! A Boxy Girl With Long Black Hair Jumped Into The Industry Wanting To Have An Adventure. Plump Busty Female College Student Ran Nanase, 20 Years Old, AV Debut!
 
 url: /v/fpre020pl
-date: 1970-02-16T01:25:00Z
+date: 2024-02-16T01:25:00Z
 image: "fpre020pl.jpg"
-tags: [Upcoming releases, Solowork, Big Tits, Titty Fuck, Debut Production, Female College Student	]
+tags: [Censored, Solowork, Big Tits, Titty Fuck, Debut Production, Female College Student	]
 maker: [Fitch]
 actress: [ Nanase Ran ]
 ---
@@ -13,13 +13,13 @@ actress: [ Nanase Ran ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="RX743BykX6udP9P">
     <a href="javascript:;">
         <img src="/v/fpre020pl/fpre020pl.jpg" width="WIDTH" height="HEIGHT" alt="fpre020pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Nanase Ran ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/RX743BykX6udP9P" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/yj6rgqg4jxrd" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Nanase Ran ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

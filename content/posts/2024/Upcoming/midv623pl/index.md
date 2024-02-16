@@ -3,9 +3,9 @@ author: j91
 title: MIDV-623 Unlimited Ejaculation/Male Squirting Restraint Suite Room I Succumb To The Temptation Of My Female Homeroom Teacher And Can't Move From After School Until The Sun Rises And I'm Already Cumming! I Was Forced To Become A Pet With 20 Ejaculations. It's New
 
 url: /v/midv623pl
-date: 1970-02-16T01:49:00Z
+date: 2024-02-16T01:49:00Z
 image: "midv623pl.jpg"
-tags: [Upcoming releases, Restraint, Solowork, Female Teacher, Slender, Submissive Men, Male Squirting	]
+tags: [Censored, Restraint, Solowork, Female Teacher, Slender, Submissive Men, Male Squirting	]
 maker: [MOODYZ]
 actress: [ Arata Arina]
 ---
@@ -13,13 +13,13 @@ actress: [ Arata Arina]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="BQjkpaaxxWcQDG">
     <a href="javascript:;">
         <img src="/v/midv623pl/midv623pl.jpg" width="WIDTH" height="HEIGHT" alt="midv623pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Arata Arina]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/BQjkpaaxxWcQDG" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/mra0a347urva" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Arata Arina]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: MIAB-108 During Her Husband's Business Trip, She Gets Drunk And Picks Her Up In Reverse, And Even After The Last Train, She Keeps Having Creampie Sex With Him Over And Over Again. A Sexy Housewife X Ladder Drinker, Kana Morisawa.
 
 url: /v/miab108pl
-date: 1970-02-16T01:45:00Z
+date: 2024-02-16T01:45:00Z
 image: "miab108pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Affair, Nampa, Slender	]
+tags: [Censored, Creampie, Solowork, Married Woman, Affair, Nampa, Slender	]
 maker: [MOODYZ]
 actress: [ Iioka Kanako]
 ---
@@ -13,13 +13,13 @@ actress: [ Iioka Kanako]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="LMrbBXzaX4FRX3O">
     <a href="javascript:;">
         <img src="/v/miab108pl/miab108pl.jpg" width="WIDTH" height="HEIGHT" alt="miab108pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Iioka Kanako]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/LMrbBXzaX4FRX3O" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/jhei81d2i93m" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Iioka Kanako]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

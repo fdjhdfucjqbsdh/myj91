@@ -3,9 +3,9 @@ author: j91
 title: VOD-027 Real Amateur Wife Document Part 3, Ukrainian Half-wife With Model-class Beautiful Breasts Has Bukkake Creampie Sex For The First Time In Her Life Riisa Kuga
 
 url: /v/vod027pl
-date: 1970-02-16T01:23:00Z
+date: 2024-02-16T01:23:00Z
 image: "vod027pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Nasty, Hardcore, Mature Woman, Promiscuity	]
+tags: [Censored, Creampie, Solowork, Married Woman, Nasty, Hardcore, Mature Woman, Promiscuity	]
 maker: [Venus]
 actress: [ Kuga Riisa ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kuga Riisa ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="OxeaG4V0LQHZpkL">
     <a href="javascript:;">
         <img src="/v/vod027pl/vod027pl.jpg" width="WIDTH" height="HEIGHT" alt="vod027pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kuga Riisa ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/OxeaG4V0LQHZpkL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/dx8l6dmi1syi" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kuga Riisa ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;" target="_blank"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

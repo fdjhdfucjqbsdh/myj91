@@ -13,7 +13,7 @@ actress: [ ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kk0901XXbZUOdJK">
+<div class="video" data-videoid="GWXLGeMb6kT11Ax">
     <a href="javascript:;">
         <img src="/v/dvmm066pl/dvmm066pl.jpg" width="WIDTH" height="HEIGHT" alt="dvmm066pl.mp4" loading="lazy">
     </a>
@@ -33,7 +33,7 @@ actress: [ ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kk0901XXbZUOdJK" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://streamtape.to/v/GWXLGeMb6kT11Ax" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
 <p><a href="https://cdnwish.com/ic70jut9xylv" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>

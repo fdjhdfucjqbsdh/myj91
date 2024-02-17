@@ -34,7 +34,8 @@ actress: [ ]
 	      	      <br>
 <div class="buttons">  
 <p><a href="https://streamtape.to/v/a4p6ZAXgPGFx4Vy" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/pc8vf9i8r0fz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://cdnwish.com/pc8vf9i8r0fz" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p>
+<p><a href="https://vidoza.net/kcciytykv07i.html" target="_blank"><button class="btn-hover color-1"><i class="fa fa-download"></i> VDZ</button></a></p></div>
     </div>
   </div>
 </div>

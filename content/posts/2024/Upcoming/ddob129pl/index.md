@@ -3,9 +3,9 @@ author: j91
 title: DDOB-129 A Party That Makes Someone's Wife Pregnant. A Devilish Cock Shoots Deep Into The Uterus! Yurika Hiyama
 
 url: /v/ddob129pl
-date: 0000-02-17T01:50:00Z
+date: 2024-02-17T01:50:00Z
 image: "ddob129pl.jpg"
-tags: [Upcoming releases, Creampie, Solowork, Married Woman, Abuse, Mature Woman	]
+tags: [Censored, Creampie, Solowork, Married Woman, Abuse, Mature Woman	]
 maker: [ Dogma  ]
 actress: [ Hiyama Yurika ]
 ---
@@ -13,13 +13,13 @@ actress: [ Hiyama Yurika ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="p8o8qAOBryTVGL">
     <a href="javascript:;">
         <img src="/v/ddob129pl/ddob129pl.jpg" width="WIDTH" height="HEIGHT" alt="ddob129pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Hiyama Yurika ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/p8o8qAOBryTVGL" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/wq18g831i41i" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Hiyama Yurika ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

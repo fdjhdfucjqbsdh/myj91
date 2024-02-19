@@ -7,7 +7,7 @@ date: 2024-02-19T16:20:00Z
 image: "SDJS232.jpg"
 tags: [Censored, Drama, Planning, School Uniform, Slender, Solowork, Uniform]
 maker: [SOD Create]
-actress: [ ]
+actress: [Shibasaki Haru ]
 ---
 
 

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: MISM-309 Liberate Your Sexual Desire! Bukkake Drinking Urine! Head Shake Illama! A Vicious Single Whip! Humiliating And Violent SM Training Because You Will Smile. A True Loli Masochist Who Gets Strangled And Wets Her Vagina, Noa Amano.
+title: CKW-008 Kiss Control Tsukasa Nagano
 
-url: /v/mism309pl
-date: 2024-02-23T01:15:00Z
-image: "mism309pl.jpg"
-tags: [Censored, SM, 3P, 4P, Solowork, Beautiful Girl, Nasty, Hardcore, Deep Throating, Piss Drinking	]
-maker: [Emumusume Lab]
-actress: [ Amano Noa]
+url: /v/ckw008pl
+date: 2024-02-23T00:55:00Z
+image: "ckw008pl.jpg"
+tags: [Censored, Handjob, Solowork, Dirty Words, Big Tits, Cowgirl, Slut, Facesitting, Submissive Men, Kiss	]
+maker: [ Waap Entertainment  ]
+actress: [ Nagano Tsukasa]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="xPAkD39QapSwKk">
+<div class="video" data-videoid="j7wRKYzzVPhzWXX">
     <a href="javascript:;">
-        <img src="/v/mism309pl/mism309pl.jpg" width="WIDTH" height="HEIGHT" alt="mism309pl.mp4" loading="lazy">
+        <img src="/v/ckw008pl/ckw008pl.jpg" width="WIDTH" height="HEIGHT" alt="ckw008pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Amano Noa]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/xPAkD39QapSwKk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/3zurt1qgp51q" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/j7wRKYzzVPhzWXX" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/6pwu7n3qquy4" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

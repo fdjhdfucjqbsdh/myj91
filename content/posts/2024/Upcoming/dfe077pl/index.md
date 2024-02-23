@@ -1,21 +1,21 @@
 ---
 author: j91
-title: MISM-309 Liberate Your Sexual Desire! Bukkake Drinking Urine! Head Shake Illama! A Vicious Single Whip! Humiliating And Violent SM Training Because You Will Smile. A True Loli Masochist Who Gets Strangled And Wets Her Vagina, Noa Amano.
+title: DFE-077 My Daughter Eats It. Misaki Tsukimoto
 
-url: /v/mism309pl
-date: 2024-02-23T01:15:00Z
-image: "mism309pl.jpg"
-tags: [Censored, SM, 3P, 4P, Solowork, Beautiful Girl, Nasty, Hardcore, Deep Throating, Piss Drinking	]
-maker: [Emumusume Lab]
-actress: [ Amano Noa]
+url: /v/dfe077pl
+date: 2024-02-23T00:55:00Z
+image: "dfe077pl.jpg"
+tags: [Censored, Sailor Suit, Creampie, Solowork, School Girls, POV, Beautiful Girl, Bloomers	]
+maker: [ Waap Entertainment  ]
+actress: [ Tsukimoto Misaki ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="xPAkD39QapSwKk">
+<div class="video" data-videoid="P90e0pKYvWh0jzp">
     <a href="javascript:;">
-        <img src="/v/mism309pl/mism309pl.jpg" width="WIDTH" height="HEIGHT" alt="mism309pl.mp4" loading="lazy">
+        <img src="/v/dfe077pl/dfe077pl.jpg" width="WIDTH" height="HEIGHT" alt="dfe077pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Amano Noa]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/xPAkD39QapSwKk" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/3zurt1qgp51q" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/P90e0pKYvWh0jzp" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/v0cp6ljdgvk0" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

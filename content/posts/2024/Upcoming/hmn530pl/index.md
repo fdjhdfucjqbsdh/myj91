@@ -3,9 +3,9 @@ author: j91
 title: HMN-530 2-stage NTR 1st Stage, Make The Subordinate Who Has Grasped The Weakness Offer A Sex Video With His Wife 2nd Stage, After That, He Is Hated By The Wife Of The Subordinate Who Can Not Refuse, But He Has 10 Raw Creampie Pickles Over And Over Again Beauty Tani Akari
 
 url: /v/hmn530pl
-date: 0000-02-23T01:40:00Z
+date: 2024-02-23T01:40:00Z
 image: "hmn530pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Drama, Cuckold	]
+tags: [Censored, Blow, Creampie, Solowork, Married Woman, Drama, Cuckold	]
 maker: [Honnaka]
 actress: [ Mitani Akari ]
 ---
@@ -13,13 +13,13 @@ actress: [ Mitani Akari ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link.html">
+<div class="video" data-videoid="ewj6r2yQ04TYWWw">
     <a href="javascript:;">
         <img src="/v/hmn530pl/hmn530pl.jpg" width="WIDTH" height="HEIGHT" alt="hmn530pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Mitani Akari ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/ewj6r2yQ04TYWWw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/onf9p471m28j" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Mitani Akari ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -1,21 +1,21 @@
 ---
 author: j91
-title: NASK-027 Submissive Neighbor, Beautiful Wife Whose Weakness Is Seized Turns Into A Sex Slave
+title: DBER-186 A Climax Spectacle Of Humiliation, A Decisive Battle At The Top Of The Master-servant Reversal! Cruel Torture Execution Platform Of Unparalleled Women Who Look Down On Men REDBABE ULTRA BEST
 
-url: /v/nask027pl
-date: 2024-02-24T01:30:00Z
-image: "nask027pl.jpg"
-tags: [Censored, Creampie, Best, Omnibus, Married Woman, 4HR+, Mature Woman	]
-maker: [ Nadeshiko  ]
-actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa Ema, Tanaka Nanami ]
+url: /v/dber186pl
+date: 2024-02-24T00:40:00Z
+image: "dber186pl.jpg"
+tags: [Censored, Torture, Abuse, 4HR+, Evil, Cruel Expression, Acme · Orgasm	]
+maker: [ Baby Entertainment  ]
+actress: [ Natsuki Kaoru, Mizumi Saki, Nagai Mihina, Nizumi Maika, Mochizuki Ayaka ,Momoka Riri ,Takarada Arisa, Kashii Kaho, Hoshikawa Mai ,Tsukihi Sara ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kP9mBXaYoDtO2Ao">
+<div class="video" data-videoid="z6j1R2BLgkiYwyq">
     <a href="javascript:;">
-        <img src="/v/nask027pl/nask027pl.jpg" width="WIDTH" height="HEIGHT" alt="nask027pl.mp4" loading="lazy">
+        <img src="/v/dber186pl/dber186pl.jpg" width="WIDTH" height="HEIGHT" alt="dber186pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa E
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kP9mBXaYoDtO2Ao" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/4szdnyg4t2e5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/z6j1R2BLgkiYwyq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/e3sszpfgbouk" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

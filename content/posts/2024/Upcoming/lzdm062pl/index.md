@@ -1,21 +1,21 @@
 ---
 author: j91
-title: NASK-027 Submissive Neighbor, Beautiful Wife Whose Weakness Is Seized Turns Into A Sex Slave
+title: LZDM-062 I Want To Eat Your Hair
 
-url: /v/nask027pl
-date: 2024-02-24T01:30:00Z
-image: "nask027pl.jpg"
-tags: [Censored, Creampie, Best, Omnibus, Married Woman, 4HR+, Mature Woman	]
-maker: [ Nadeshiko  ]
-actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa Ema, Tanaka Nanami ]
+url: /v/lzdm062pl
+date: 2024-02-24T01:44:00Z
+image: "lzdm062pl.jpg"
+tags: [Censored, Lesbian, Female Teacher, School Girls, Squirting, Lesbian Kiss	]
+maker: [ Lez Re!  ]
+actress: [ Mochizuki Ayaka, Amaharu Noa 	]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kP9mBXaYoDtO2Ao">
+<div class="video" data-videoid="7DWyJ2488lIAg7d">
     <a href="javascript:;">
-        <img src="/v/nask027pl/nask027pl.jpg" width="WIDTH" height="HEIGHT" alt="nask027pl.mp4" loading="lazy">
+        <img src="/v/lzdm062pl/lzdm062pl.jpg" width="WIDTH" height="HEIGHT" alt="lzdm062pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa E
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kP9mBXaYoDtO2Ao" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/4szdnyg4t2e5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7DWyJ2488lIAg7d" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/p3urzgbhuyje" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

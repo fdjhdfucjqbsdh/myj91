@@ -1,21 +1,21 @@
 ---
 author: j91
-title: NASK-027 Submissive Neighbor, Beautiful Wife Whose Weakness Is Seized Turns Into A Sex Slave
+title: PFAS-005 A Slutty Wife Who Does Whatever She Wants To Her Husband, With Her Husband's Younger Brother, Who Loves Sex, And Has A Masochistic Temperament.
 
-url: /v/nask027pl
-date: 2024-02-24T01:30:00Z
-image: "nask027pl.jpg"
-tags: [Censored, Creampie, Best, Omnibus, Married Woman, 4HR+, Mature Woman	]
-maker: [ Nadeshiko  ]
-actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa Ema, Tanaka Nanami ]
+url: /v/pfas005pl
+date: 2024-02-24T00:40:00Z
+image: "pfas005pl.jpg"
+tags: [Censored, Married Woman, Nasty, Hardcore, Affair, Drama, Multiple Story, Huge Butt	]
+maker: [ FA Pro . Platinum  ]
+actress: [ Maeta Ako, Ichinari Kokomi, Oosono Akiho ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kP9mBXaYoDtO2Ao">
+<div class="video" data-videoid="7maxyJkZ7ZFAzyq">
     <a href="javascript:;">
-        <img src="/v/nask027pl/nask027pl.jpg" width="WIDTH" height="HEIGHT" alt="nask027pl.mp4" loading="lazy">
+        <img src="/v/pfas005pl/pfas005pl.jpg" width="WIDTH" height="HEIGHT" alt="pfas005pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa E
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kP9mBXaYoDtO2Ao" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/4szdnyg4t2e5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7maxyJkZ7ZFAzyq" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/u5wgcx6a9qwr" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

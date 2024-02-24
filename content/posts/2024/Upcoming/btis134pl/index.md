@@ -1,21 +1,21 @@
 ---
 author: j91
-title: NASK-027 Submissive Neighbor, Beautiful Wife Whose Weakness Is Seized Turns Into A Sex Slave
+title: BTIS-134 Transvestite Beautiful Boy 74 Louis
 
-url: /v/nask027pl
-date: 2024-02-24T01:30:00Z
-image: "nask027pl.jpg"
-tags: [Censored, Creampie, Best, Omnibus, Married Woman, 4HR+, Mature Woman	]
-maker: [ Nadeshiko  ]
-actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa Ema, Tanaka Nanami ]
+url: /v/btis134pl
+date: 2024-02-24T00:40:00Z
+image: "btis134pl.jpg"
+tags: [Censored, Cross Dressing	]
+maker: [Bishounen Shuppansha   ]
+actress: [ ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kP9mBXaYoDtO2Ao">
+<div class="video" data-videoid="G2RLJx6dWjF1JQ2">
     <a href="javascript:;">
-        <img src="/v/nask027pl/nask027pl.jpg" width="WIDTH" height="HEIGHT" alt="nask027pl.mp4" loading="lazy">
+        <img src="/v/btis134pl/btis134pl.jpg" width="WIDTH" height="HEIGHT" alt="btis134pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa E
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kP9mBXaYoDtO2Ao" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/4szdnyg4t2e5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/G2RLJx6dWjF1JQ2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/yhwqu6cq4wlq" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

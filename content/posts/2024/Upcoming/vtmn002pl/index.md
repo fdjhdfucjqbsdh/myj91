@@ -1,21 +1,21 @@
 ---
 author: j91
-title: NASK-027 Submissive Neighbor, Beautiful Wife Whose Weakness Is Seized Turns Into A Sex Slave
+title: VTMN-002 The Thing I Want To Do The Most. I Am Restrained And Do Whatever You Want Without Resistance... Tomomi Okanishi
 
-url: /v/nask027pl
-date: 2024-02-24T01:30:00Z
-image: "nask027pl.jpg"
-tags: [Censored, Creampie, Best, Omnibus, Married Woman, 4HR+, Mature Woman	]
-maker: [ Nadeshiko  ]
-actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa Ema, Tanaka Nanami ]
+url: /v/vtmn002pl
+date: 2024-02-24T01:44:00Z
+image: "vtmn002pl.jpg"
+tags: [Censored, Creampie, Restraint, Solowork, Documentary, Deep Throating, Spanking	]
+maker: [ Vitamin - Mousozoku  ]
+actress: [ Okanishi Tomomi ]
 ---
 
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="kP9mBXaYoDtO2Ao">
+<div class="video" data-videoid="7zXYpbkkozUAAr6">
     <a href="javascript:;">
-        <img src="/v/nask027pl/nask027pl.jpg" width="WIDTH" height="HEIGHT" alt="nask027pl.mp4" loading="lazy">
+        <img src="/v/vtmn002pl/vtmn002pl.jpg" width="WIDTH" height="HEIGHT" alt="vtmn002pl.mp4" loading="lazy">
     </a>
 </div>
 
@@ -33,8 +33,8 @@ actress: [ Rinne Touka, Mizukawa Sumire ,Kase Nanaho, Miyazawa Yuuri, Ichikawa E
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://streamtape.to/v/kP9mBXaYoDtO2Ao" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://cdnwish.com/4szdnyg4t2e5" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/7zXYpbkkozUAAr6" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/8v8x64r2qolc" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>

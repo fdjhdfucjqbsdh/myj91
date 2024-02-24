@@ -3,9 +3,9 @@ author: j91
 title: EKDV-737 A New Maid Who Came Here With Hope In Her Heart Was Inseminated And Trained In Convulsive Treatment From Morning Until Night. She Was Raped To The Point That She Wanted To Cry By A Man Who Felt Nothing But Disgust... Konatsu Kashiwagi
 
 url: /v/ekdv737pl
-date: 0000-02-24T01:50:00Z
+date: 2024-02-24T01:50:00Z
 image: "ekdv737pl.jpg"
-tags: [Upcoming releases, Blow, Handjob, Maid, Creampie, Restraint, Vibe, Solowork, Masturbation, Cunnilingus, Big Tits, Titty Fuck, Beautiful Girl, Cowgirl, Finger Fuck, Electric Massager, 69, Shaved, Deep Throating, Close Up, Back]
+tags: [Censored, Blow, Handjob, Maid, Creampie, Restraint, Vibe, Solowork, Masturbation, Cunnilingus, Big Tits, Titty Fuck, Beautiful Girl, Cowgirl, Finger Fuck, Electric Massager, 69, Shaved, Deep Throating, Close Up, Back]
 maker: [ Crystal Eizou  ]
 actress: [ Kashiwagi Konatsu ]
 ---
@@ -13,13 +13,13 @@ actress: [ Kashiwagi Konatsu ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="JX1G12DAg8Hevb">
     <a href="javascript:;">
         <img src="/v/ekdv737pl/ekdv737pl.jpg" width="WIDTH" height="HEIGHT" alt="ekdv737pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Kashiwagi Konatsu ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/JX1G12DAg8Hevb" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/25zhf0wnrjnw" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Kashiwagi Konatsu ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

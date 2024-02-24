@@ -3,9 +3,9 @@ author: j91
 title: GVH-628 My Girlfriend's Sister, Ayaka, Who Is A Technical Instructor For [ejaculation Course For Women], Suddenly Asked Me To Be A Male Model, And She Played With My Blindfolded Dick With Amazing Techniques, And I Failed To Ejaculate Many Times. It Happened...! Ayaka Tomoda
 
 url: /v/gvh628pl
-date: 0000-02-24T01:55:00Z
+date: 2024-02-24T01:55:00Z
 image: "gvh628pl.jpg"
-tags: [Upcoming releases, Blow, Handjob, 3P, 4P, Solowork, Older Sister, Cuckold	]
+tags: [Censored, Blow, Handjob, 3P, 4P, Solowork, Older Sister, Cuckold	]
 maker: [ Glory Quest  ]
 actress: [ Tomoda Ayaka ]
 ---
@@ -13,13 +13,13 @@ actress: [ Tomoda Ayaka ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="rkoGaJDRXZIbQPw">
     <a href="javascript:;">
         <img src="/v/gvh628pl/gvh628pl.jpg" width="WIDTH" height="HEIGHT" alt="gvh628pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Tomoda Ayaka ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/rkoGaJDRXZIbQPw" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/ewuw25x0ys0m" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Tomoda Ayaka ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

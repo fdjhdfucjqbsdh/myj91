@@ -3,9 +3,9 @@ author: j91
 title: AVSA-296 'INGO' IN GOD ECSTASY A Lewd Slut's Dirty Talk. She Imprints Her Obscene And Erotic Voice Into The Men's Brains And Makes Them Ascend To Heaven With Relentless Dick Torture. Mizuki Yayoi Is Completely Dominated.
 
 url: /v/avsa296pl
-date: 0000-02-24T01:50:00Z
+date: 2024-02-24T01:50:00Z
 image: "avsa296pl.jpg"
-tags: [Upcoming releases, Solowork, Older Sister, Dirty Words, Big Tits, Slut, Submissive Men	]
+tags: [Censored, Solowork, Older Sister, Dirty Words, Big Tits, Slut, Submissive Men	]
 maker: [ Avs  ]
 actress: [ Yayoi Mizuki ]
 ---
@@ -13,13 +13,13 @@ actress: [ Yayoi Mizuki ]
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="3kdd1QjL1rCXA2">
     <a href="javascript:;">
         <img src="/v/avsa296pl/avsa296pl.jpg" width="WIDTH" height="HEIGHT" alt="avsa296pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/3kdd1QjL1rCXA2" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/qyx8pssmyhto" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Yayoi Mizuki ]
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

@@ -3,9 +3,9 @@ author: j91
 title: REAL-842 Throat Destruction, Schoolgirl Deep Throat BEST, Brutal Piston Thrusting, 240 Minutes
 
 url: /v/real842pl
-date: 0000-02-24T01:30:00Z
+date: 2024-02-24T01:30:00Z
 image: "real842pl.jpg"
-tags: [Upcoming releases, School Girls, Best, Omnibus, Beautiful Girl, 4HR+, Deep Throating, Evil	]
+tags: [Censored, School Girls, Best, Omnibus, Beautiful Girl, 4HR+, Deep Throating, Evil	]
 maker: [ K.M.Produce  ]
 actress: [ Abe Mikako, Kawana Misuzu, Nagomi, Natsume Eri, Atomi Shuri, Aoi Rena, Kururugi Aoi, Hoshina Ai, Kanade Kanon, Kuramoto Sumire]
 ---
@@ -13,13 +13,13 @@ actress: [ Abe Mikako, Kawana Misuzu, Nagomi, Natsume Eri, Atomi Shuri, Aoi Rena
 
 {{< rawhtml >}}
 
-<div class="video" data-videoid="pending_link_2.html">
+<div class="video" data-videoid="DAl0ZXrmJRCkZ4p">
     <a href="javascript:;">
         <img src="/v/real842pl/real842pl.jpg" width="WIDTH" height="HEIGHT" alt="real842pl.mp4" loading="lazy">
     </a>
 </div>
 
-<script type="text/javascript" src="https://j91.asia/asset/on-demand-pend.js"></script>
+<script type="text/javascript" src="https://j91.asia/asset/on-demand-st.js"></script>
 
 <br>
   <link rel="stylesheet" href="https://j91.asia/asset/bs5.css">
@@ -33,8 +33,8 @@ actress: [ Abe Mikako, Kawana Misuzu, Nagomi, Natsume Eri, Atomi Shuri, Aoi Rena
       <div class="card card-body">
 	      	      <br>
 <div class="buttons">  
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
+<p><a href="https://streamtape.to/v/DAl0ZXrmJRCkZ4p" target="_blank"><button class="btn-hover color-3"><i class="fa fa-download"></i> ST</button></a></p>
+<p><a href="https://cdnwish.com/fnls41j1fuov" target="_blank"><button class="btn-hover color-2"><i class="fa fa-download"></i> SW</button></a></p></div>
     </div>
   </div>
 </div>
@@ -43,8 +43,8 @@ actress: [ Abe Mikako, Kawana Misuzu, Nagomi, Natsume Eri, Atomi Shuri, Aoi Rena
       <div class="card card-body">
 	      <br>
 <div class="buttons">
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
-<p><a href="https://j91.asia/pending_link_2.html"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
+<p><a href="javascript:;"><button class="btn-hover color-9"><i class="fa fa-download"></i> VH</button></a></p>
+<p><a href="javascript:;"><button class="btn-hover color-8"><i class="fa fa-download"></i> FM</button></a></p></div>
 <br><br>
       </div>
     </div>

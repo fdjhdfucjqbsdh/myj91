@@ -5,7 +5,7 @@ title: IPZZ-225 [English Subtitle] On A School Trip, I Unexpectedly Ended Up Sha
 url: /v/ipzz225en
 date: 2024-03-09T01:30:00Z
 image: "ipzz225en.jpg"
-tags: [Uncensored, Solowork, Female Teacher, Big Tits, Slender, Cuckold	]
+tags: [Censored, English Subtitles, Solowork, Female Teacher, Big Tits, Slender, Cuckold	]
 maker: [IDEA POCKET  ]
 actress: [Momonogi Kana ]
 ---

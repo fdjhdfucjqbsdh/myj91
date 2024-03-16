@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: ROYD-170 A Junior Female Employee Woke Up In The Morning With Her Yukata Exposed In Her Room! Even Though She's Always So Cocky And Always Curses At Me, I've Become Spoiled... Ema Futaba
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/royd170pl
+date: 0000-03-22T01:40:00Z
+image: "royd170pl.jpg"
+tags: [Upcoming releases, OL, Blow, Solowork, Kimono, Mourning, Drinking Party, Subordinates - Colleagues	]
+maker: [ROYAL]
+actress: [ Futaba Ema ]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/royd170pl/royd170pl.jpg" width="WIDTH" height="HEIGHT" alt="royd170pl.mp4" loading="lazy">
     </a>
 </div>
 

@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: HUNTC-087 As A Man, Cleaning The School By Myself Is Super Panty Shot Heaven! If You Look Around, You Will Be Very Excited To See The Endless Panty Shots That Spread Out In Your Field Of Vision! When I Transferred To A School That Was An All-girls School Until Last Year, I Was The Only Guy There!
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/huntc087pl
+date: 0000-03-22T01:07:00Z
+image: "huntc087pl.jpg"
+tags: [Upcoming releases, 3P, 4P, Mini Skirt, School Stuff, Promiscuity	]
+maker: [Hunter]
+actress: [ Kagami Sara, Masshiro Minori, Misumi Rei, Igarashi Mizuki, Shirahama Minami ]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/huntc087pl/huntc087pl.jpg" width="WIDTH" height="HEIGHT" alt="huntc087pl.mp4" loading="lazy">
     </a>
 </div>
 

@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: HUNTC-036 “I Will Make You Graduate From Virginity! ""No Good! I'll Graduate! ” “I Don’t Like It! ”Three Childhood Friends Compete For My Virginity! I'm Having Trouble Deciding Who To Choose...
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/huntc036pl
+date: 0000-03-22T01:07:00Z
+image: "huntc036pl.jpg"
+tags: [Upcoming releases, Blow, Creampie, 3P, 4P, School Girls, Cowgirl	]
+maker: [Hunter]
+actress: [ ]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/huntc036pl/huntc036pl.jpg" width="WIDTH" height="HEIGHT" alt="huntc036pl.mp4" loading="lazy">
     </a>
 </div>
 

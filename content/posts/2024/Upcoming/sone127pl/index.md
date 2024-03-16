@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: SONE-127 I Became Lustful For My Girlfriend's Younger Sister Who Couldn't Say "stop" And Secretly Continued To Fuck Her... And She Unexpectedly Became Addicted To My Dick. Kokoro Asano
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/sone127pl
+date: 0000-03-22T01:55:00Z
+image: "sone127pl.jpg"
+tags: [Upcoming releases, Blow, Solowork, Beautiful Girl, Nasty, Hardcore, Cowgirl	]
+maker: [S1 NO.1 STYLE]
+actress: [ Asano Kokoro]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/sone127pl/sone127pl.jpg" width="WIDTH" height="HEIGHT" alt="sone127pl.mp4" loading="lazy">
     </a>
 </div>
 

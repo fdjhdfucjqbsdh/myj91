@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: SONE-172 Newcomer NO.1STYLE Airi Nagisa AV Debut
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/sone172pl
+date: 0000-03-22T01:55:00Z
+image: "sone172pl.jpg"
+tags: [Upcoming releases, Blow, 3P, 4P, Solowork, Uniform, Debut Production, Beautiful Girl	]
+maker: [S1 NO.1 STYLE]
+actress: [ Nagisa Airi ]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/sone172pl/sone172pl.jpg" width="WIDTH" height="HEIGHT" alt="sone172pl.mp4" loading="lazy">
     </a>
 </div>
 

@@ -1,13 +1,13 @@
 ---
 author: j91
-title: VAGU-266 My Super Beautiful Wife Looked At Me And Sucked Me Over And Over Again, And I Exploded Over And Over Again. Izumi Yamagishi
+title: JUQ-580 Exclusive Again. A J-cup Beauty Is Covered In Infidelity And Oil And Falls Into Full-fledged NTR. Nude Model NTR Shocking Cheating Video Of A Wife Drowning In Shame With Her Boss Kana Kusakabe
 
-url: /v/vagu266pl
-date: 0000-03-22T01:35:00Z
-image: "vagu266pl.jpg"
-tags: [Upcoming releases, Blow, Creampie, Solowork, Married Woman, Mature Woman, Deep Throating	]
-maker: [Venus]
-actress: [ Yamagishi Izumi ]
+url: /v/juq580pl
+date: 0000-03-22T01:50:00Z
+image: "juq580pl.jpg"
+tags: [Upcoming releases, 3P, 4P, Solowork, Big Tits, Married Woman, Mature Woman, Cuckold	]
+maker: [Madonna]
+actress: [ Kusakabe Kana ]
 ---
 
 
@@ -15,7 +15,7 @@ actress: [ Yamagishi Izumi ]
 
 <div class="video" data-videoid="pending_link.html">
     <a href="javascript:;">
-        <img src="/v/vagu266pl/vagu266pl.jpg" width="WIDTH" height="HEIGHT" alt="vagu266pl.mp4" loading="lazy">
+        <img src="/v/juq580pl/juq580pl.jpg" width="WIDTH" height="HEIGHT" alt="juq580pl.mp4" loading="lazy">
     </a>
 </div>
 

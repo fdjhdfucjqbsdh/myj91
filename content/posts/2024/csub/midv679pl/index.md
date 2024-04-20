@@ -1,6 +1,6 @@
 ---
 author: j91
-title: MIDV-679 My Girlfriend's Twin Sister Seduces Me With A Too Carnivorous Approach Hikari Takifuyu
+title: MIDV-679 [Chinese Subtitle] My Girlfriend's Twin Sister Seduces Me With A Too Carnivorous Approach Hikari Takifuyu
 
 url: /was/midv679pl
 date: 2024-04-20T07:10:00Z

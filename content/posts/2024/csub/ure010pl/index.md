@@ -1,6 +1,6 @@
 ---
 author: j91
-title: URE-010 Photographed At Last Masterpiece Of Flower Immorality Comics Become Popular In The Original, Glossy × Uno Mizuki Secretly! ! Love Nana
+title: URE-010 [Chinese Subtitle] Photographed At Last Masterpiece Of Flower Immorality Comics Become Popular In The Original, Glossy × Uno Mizuki Secretly! ! Love Nana
 
 url: /was/ure010pl
 date: 2024-04-20T07:15:00Z

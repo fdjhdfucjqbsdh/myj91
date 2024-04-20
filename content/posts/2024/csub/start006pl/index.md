@@ -1,6 +1,6 @@
 ---
 author: j91
-title: START-006 For Some Reason, Kamiki-san, A Gal Who Is Kind To Nerds, Liked Me...From The Day She Forcibly Brushed Me Off, I Was At The Mercy Of This Cute Little Devil With A Smiling Face, And My Cock And Heart Were Both In Her Hands. Rei Kamiki
+title: START-006 [Chinese Subtitle] For Some Reason, Kamiki-san, A Gal Who Is Kind To Nerds, Liked Me...From The Day She Forcibly Brushed Me Off, I Was At The Mercy Of This Cute Little Devil With A Smiling Face, And My Cock And Heart Were Both In Her Hands. Rei Kamiki
 
 url: /was/start006pl
 date: 2024-04-20T07:10:00Z

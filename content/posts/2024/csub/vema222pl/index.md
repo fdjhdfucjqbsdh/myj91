@@ -5,7 +5,7 @@ title: VEMA-222 [Chinese Subtitle] My Girlfriend, A Beautiful Female Teacher, Is
 url: /v/vema222pl
 date: 2024-05-17T02:15:00Z
 image: "vema222pl.jpg"
-tags: [Censored, Creampie, Solowork, Female Teacher, Married Woman, Breasts, Mature Woman	]
+tags: [Chinese Subtitle, Creampie, Solowork, Female Teacher, Married Woman, Breasts, Mature Woman	]
 maker: [ Venus  ]
 actress: [ Yamashita Karen ]
 ---

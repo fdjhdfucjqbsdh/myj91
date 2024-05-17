@@ -5,7 +5,7 @@ title: VENX-265 [Chinese Subtitle] 1 Night And 2 Days Ruisa Tsuzuki Was Left Beh
 url: /v/venx265pl
 date: 2024-05-17T02:15:00Z
 image: "venx265pl.jpg"
-tags: [Censored, Creampie, Solowork, Big Tits, Married Woman, Mature Woman, Cuckold	]
+tags: [Chinese Subtitle, Creampie, Solowork, Big Tits, Married Woman, Mature Woman, Cuckold	]
 maker: [ Venus  ]
 actress: [ Totsuki Ruisa ]
 ---

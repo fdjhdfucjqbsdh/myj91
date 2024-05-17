@@ -5,7 +5,7 @@ title: JUQ-705 [Chinese Subtitle] First Affair-First Affair 01- A 'lost Lamb' Ma
 url: /v/juq705pl
 date: 2024-05-17T02:15:00Z
 image: "juq705pl.jpg"
-tags: [Censored, Solowork, Married Woman, Debut Production, Affair, Documentary, Mature Woman	]
+tags: [Chinese Subtitle, Solowork, Married Woman, Debut Production, Affair, Documentary, Mature Woman	]
 maker: [ Madonna  ]
 actress: [ Amamiya Kasumi ]
 ---

@@ -5,7 +5,7 @@ title: JUQ-706 [Chinese Subtitle] I Can't Even Tell My Husband That My Father-in
 url: /v/juq706pl
 date: 2024-05-17T02:15:00Z
 image: "juq706pl.jpg"
-tags: [Censored, Creampie, Solowork, Married Woman, Slender, Mature Woman, Hot Spring	]
+tags: [Chinese Subtitle, Creampie, Solowork, Married Woman, Slender, Mature Woman, Hot Spring	]
 maker: [ Madonna  ]
 actress: [ Imai Kanna ]
 ---

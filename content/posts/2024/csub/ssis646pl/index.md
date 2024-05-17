@@ -5,7 +5,7 @@ title: SSIS-646 [Chinese Subtitle] I'm A Vulgar Female Teacher, So It's Natural 
 url: /v/ssis646pl
 date: 2024-05-17T02:15:00Z
 image: "ssis646pl.jpg"
-tags: [Censored, Solowork, Female Teacher, Nasty, Hardcore, Deep Throating, Cuckold, Risky Mosaic	]
+tags: [Chinese Subtitle, Solowork, Female Teacher, Nasty, Hardcore, Deep Throating, Cuckold, Risky Mosaic	]
 maker: [ S1 NO.1 STYLE  ]
 actress: [ Kaede Fuua ]
 ---

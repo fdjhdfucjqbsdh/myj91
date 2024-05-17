@@ -5,7 +5,7 @@ title: JUQ-698 [Chinese Subtitle] Only I Know... Impregnating The Female Boss Of
 url: /v/juq698pl
 date: 2024-05-17T02:15:00Z
 image: "juq698pl.jpg"
-tags: [Censored, Creampie, Solowork, Married Woman, Various Professions, Mature Woman, Female Boss	]
+tags: [Chinese Subtitle, Creampie, Solowork, Married Woman, Various Professions, Mature Woman, Female Boss	]
 maker: [ Madonna  ]
 actress: [ Yoshizawa Yuki ]
 ---

@@ -2,7 +2,7 @@
 author: j91
 title: Caribbeancom 052924-001 Pussy Encyclopedia, Hitomi Tanmura
 
-url: /u/052924_01-10mu
+url: /u/052924-001-carib
 date: 2024-05-29T03:09:00Z
 image: "052924_01-10mu.jpg"
 tags: [Uncensored, Breasts, Nice Ass, Sexy Legs, Shaved, Slender]

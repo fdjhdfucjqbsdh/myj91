@@ -1,6 +1,6 @@
 ---
 author: j91
-title: FC2PPV-4461902 [A 3P work of beautiful women who squirt and make everyone turn their heads] A Nogizaka look that resembles Shibuya Nagisa and a stunning golden style. A new world opened up by two Kuro-chans. Kyoko, 20 years old
+title: FC2PPV-4461902 A Nogizaka look that resembles Shibuya Nagisa and a stunning golden style. A new world opened up by two Kuro-chans. Kyoko, 20 years old
 
 url: /u/4461902
 date: 2024-06-02T04:15:00Z

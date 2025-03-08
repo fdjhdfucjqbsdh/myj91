@@ -37,16 +37,16 @@
 
 
 <title>
- {{- if .IsHome -}}
-   Home | {{ .Site.Title }}
- {{- else if .Params.hide_site_title -}}
-   {{ .Page.Title }}
- {{- else if .Page.Title -}}
-   {{ .Page.Title }} | {{ .Site.Title }}
- {{- else -}}
-   {{ .Site.Title }}
- {{- end -}}
-</title> 
+  {{- if .IsHome -}}
+    Home | {{ .Site.Title | replaceRE "(?i)(abuse|abused|asphyxia|behead|bleed|blood|child|children|choke|choking|decapitation|drugged|force|forced|hidden cam|kid|kill|leak|leaked|loli|l.o.l.i|murder|rape|shota|snuff|strangle|torture)" "****" }}
+  {{- else if .Params.hide_site_title -}}
+    {{ .Page.Title | replaceRE "(?i)(abuse|abused|asphyxia|behead|bleed|blood|child|children|choke|choking|decapitation|drugged|force|forced|hidden cam|kid|kill|leak|leaked|loli|l.o.l.i|murder|rape|shota|snuff|strangle|torture)" "****" }}
+  {{- else if .Page.Title -}}
+    {{ .Page.Title | replaceRE "(?i)(abuse|abused|asphyxia|behead|bleed|blood|child|children|choke|choking|decapitation|drugged|force|forced|hidden cam|kid|kill|leak|leaked|loli|l.o.l.i|murder|rape|shota|snuff|strangle|torture)" "****" }} | {{ .Site.Title | replaceRE "(?i)(abuse|abused|asphyxia|behead|bleed|blood|child|children|choke|choking|decapitation|drugged|force|forced|hidden cam|kid|kill|leak|leaked|loli|l.o.l.i|murder|rape|shota|snuff|strangle|torture)" "****" }}
+  {{- else -}}
+    {{ .Site.Title | replaceRE "(?i)(abuse|abused|asphyxia|behead|bleed|blood|child|children|choke|choking|decapitation|drugged|force|forced|hidden cam|kid|kill|leak|leaked|loli|l.o.l.i|murder|rape|shota|snuff|strangle|torture)" "****" }}
+  {{- end -}}
+ </title> 
 {{ $sass := resources.Get "scss/style.scss" }}
 {{ $style := $sass | resources.ToCSS | minify | resources.Fingerprint "sha256" }}
 <link rel="stylesheet" href="{{ $style.RelPermalink }}">

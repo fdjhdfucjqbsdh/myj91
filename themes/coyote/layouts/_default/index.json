@@ -9,7 +9,7 @@
             {{- $content = replaceRE (printf "(?i)%s" .) "****" $content -}}
         {{- end -}}
         {{- $.Scratch.Add "index" (dict 
-            "title" ($title | truncate 50 "...") 
+            "title" $title | truncate 50 
             "content" $content 
             "permalink" .Permalink 
             "summary" .Summary 
